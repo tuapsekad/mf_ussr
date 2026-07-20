@@ -6,71 +6,136 @@
 ###Мультфильмы
 
 [Высокая горка(1951)](https://max.ru/channel_mf_ussr/AZ88Zfm9TVk)
+
 [Весення сказка(1949)](https://max.ru/channel_mf_ussr/AZ88ZtaxaRI)
+
 [Дракон(1961)](https://max.ru/channel_mf_ussr/AZ88Z__xAII)
+
 [В некотором царстве…(1957)](https://max.ru/channel_mf_ussr/AZ88aSHmVGw)
+
 [Заколдованный мальчик(1955)](https://max.ru/channel_mf_ussr/AZ88agoOKf4)
+
 [Зай и Чик(1952)](https://max.ru/channel_mf_ussr/AZ88anyCM-Q)
+
 [Друзья-товарищи(1951)](https://max.ru/channel_mf_ussr/AZ88bT0iJvs)
+
 [Соломенный бычок(1954)](https://max.ru/channel_mf_ussr/AZ88bcpwAd8)
+
 [Эхо(1982)](https://max.ru/channel_mf_ussr/AZ88cDZmagU)
+
 [Федя Зайцев(1948)](https://max.ru/channel_mf_ussr/AZ88cML9X3Y)
+
 [Царевна-лягушка(1954)](https://max.ru/channel_mf_ussr/AZ88ch1VapA)
+
 [Сказка о потерянном времени(1978)](https://max.ru/channel_mf_ussr/AZ88cpdKZ94)
+
 [Аленький цветочек(1952)](https://max.ru/channel_mf_ussr/AZ88c4hAQ98)
+
 [Золотая антилопа(1954)](https://max.ru/channel_mf_ussr/AZ9AzYj1Ocs)
+
 [В гостях у лета(1972)](https://max.ru/channel_mf_ussr/AZ9BDJnoSrs)
+
 [Миллион в мешке(1956)](https://max.ru/channel_mf_ussr/AZ9BFXXyOhQ)
+
 [Красная шапочка(1937)](https://max.ru/channel_mf_ussr/AZ9BSHEgcO4)
+
 [Вовка в Тридевятом царстве(1965)](https://max.ru/channel_mf_ussr/AZ9BWSGXJQY)
+
 [Каштанка(1952)](https://max.ru/channel_mf_ussr/AZ9BeIDUSpE)
+
 [Каникулы в Простоквашино(1980)](https://max.ru/channel_mf_ussr/AZ9BixiKUjA)
+
 [Десантник Стёпочкин(2004)](https://max.ru/channel_mf_ussr/AZ9FDGcpGqY)
+
 [Путешествие в страну великанов(1947)](https://max.ru/channel_mf_ussr/AZ9FcsHZd8U)
+
 [Пёс Барбос и необычный кросс(1961)](https://max.ru/channel_mf_ussr/AZ9Fg3NPdZI)
+
 [Гуси-лебеди(1949)](https://max.ru/channel_mf_ussr/AZ9FhoopJzM)
+
 [О том как гном покинул дом(1976)](https://max.ru/channel_mf_ussr/AZ9FjjA2Iak)
+
 [Приключения Васи Куролесова(1981)](https://max.ru/channel_mf_ussr/AZ9FvXSyL40)
+
 [Бобик в гостях у Барбоса(1977)](https://max.ru/channel_mf_ussr/AZ9F3JvucM0)
+
 [Малыш и Карлсон(1968)](https://max.ru/channel_mf_ussr/AZ9F5m8JZdo)
+
 [Карлсон вернулся(1970)](https://max.ru/channel_mf_ussr/AZ9F_oOPRxU)
+
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
+
 [Приключения капитана Врунгеля(1976-1979)](https://max.ru/channel_mf_ussr/AZ9GLsslQIo)
+
 [Чебурашка(1972)](https://max.ru/channel_mf_ussr/AZ9GRLTgfNc)
+
 [Гадкий утёнок(1955)](https://max.ru/channel_mf_ussr/AZ9GRX1mNNY)
+
 [Два богатыря(1989)](https://max.ru/channel_mf_ussr/AZ9GThVtczQ)
+
 [Про ёжика и медвежонка. Трям Здравствуйте! Зимняя сказка. Осенние корабли. Удивительная бочка.(1980)](https://max.ru/channel_mf_ussr/AZ9GYtZyQHo)
+
 [Сказка о солдате(1948)](https://max.ru/channel_mf_ussr/AZ9GaSyiJK0)
+
 [Крошка Енот(1974)](https://max.ru/channel_mf_ussr/AZ9GjNHHB8U)
+
 [Ох и Ах(1975)](https://max.ru/channel_mf_ussr/AZ9GjgnQAP0)
+
 [Последний заяц(1971)](https://max.ru/channel_mf_ussr/AZ9qEk7iRlg)
+
 [Таёжная сказка(1951)](https://max.ru/channel_mf_ussr/AZ9qFdeVW5c)
+
 [Аист(1956)](https://max.ru/channel_mf_ussr/AZ9qGowBSgc)
+
 [Петушок - золотой гребешок(1955)](https://max.ru/channel_mf_ussr/AZ9qYx-QHwQ)
+
 [Сборник мультфильмов. Аленький цветочек(1952), В лесной чаще(1954), Гуси-лебеди(1949)](https://max.ru/channel_mf_ussr/AZ9uPCVTc-Y)
+
 [Жил-был пёс(1982)](https://max.ru/channel_mf_ussr/AZ9uRXC_fbk)
+
 [Кошкин дом(1958)](https://max.ru/channel_mf_ussr/AZ9uXc5zOuY)
+
 [Золотая антилопа(1954)](https://max.ru/channel_mf_ussr/AZ9ui5P9P40)
+
 [Весенняя сказка(1949)](https://max.ru/channel_mf_ussr/AZ9uk8Asbas)
+
 [Падал прошлогодний снег(1983)](https://max.ru/channel_mf_ussr/AZ945yikXHs)
+
 [Нехочуха(1986)](https://max.ru/channel_mf_ussr/AZ94-sT6JtY)
+
 [Полуцыпленок(1962)](https://max.ru/channel_mf_ussr/AZ99pihpMA4)
+
 [Сборник мультфильмов(1950). Девочка в цирке(1950), Жёлтый аист(1950), Крепыш(1950), Кто первый?(1950), Олень и Волк(1950), Чудо-мельница(1950)](https://max.ru/channel_mf_ussr/AZ99wnRuRZE)
+
 [А что ты умеешь?(1984)](https://max.ru/channel_mf_ussr/AZ99y49Iad4)
+
 [Ивась(1940)](https://max.ru/channel_mf_ussr/AZ990ejWD7Q)
+
 
 ### Художественные фильмы
 
 [Новые приключения неуловимых(1968)](https://max.ru/channel_mf_ussr/AZ88a-tDSV4)
+
 [Белые росы(1983)](https://max.ru/channel_mf_ussr/AZ9FJ2c3e10)
+
 [Приключения Электроника(1979)](https://max.ru/channel_mf_ussr/AZ9FUrFjOXM)
+
 [Ноев ковчег(1976)](https://max.ru/channel_mf_ussr/AZ9Fr_G5GHU)
+
 [Москва слезам не верит(1979)](https://max.ru/channel_mf_ussr/AZ9GfNDEFS8)
+
 [Варвара-краса, длинная коса(1969)](https://max.ru/channel_mf_ussr/AZ9pirrPSkw)
+
 [По щучьему велению(1938)](https://max.ru/channel_mf_ussr/AZ9pmYN9Ktk)
+
 [Три толстяка(1966)](https://max.ru/channel_mf_ussr/AZ9p5YEmX68)
+
 [Кащей Бессмертный(1944)](https://max.ru/channel_mf_ussr/AZ9qDP8DZI4)
+
 [Гараж(1979)](https://max.ru/channel_mf_ussr/AZ9qWyBnLeo)
+
 [О бедном гусаре замолвите слово(1981)](https://max.ru/channel_mf_ussr/AZ9ueU6yLjo)
+
 [Как Иванушка-дурачок за чудом ходил(1977)](https://max.ru/channel_mf_ussr/AZ94qVV4LSI)
+
 [Холодное лето пятьдесят третьего...(1987)](https://max.ru/channel_mf_ussr/AZ948rb6bp0)
