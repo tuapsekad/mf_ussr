@@ -114,6 +114,8 @@
 
 [Следствие ведут Колобки(1986)](https://max.ru/channel_mf_ussr/AZ-DGdGNWSk)
 
+[Дарю тебе звезду(1974)](https://max.ru/channel_mf_ussr/AZ-DSVhQdPc)
+
 ### Художественные фильмы
 
 [Новые приключения неуловимых(1968)](https://max.ru/channel_mf_ussr/AZ88a-tDSV4)
@@ -145,3 +147,5 @@
 [Дачная поездка сержанта Цыбули(1979)](https://max.ru/channel_mf_ussr/AZ9_OdC3Iqs)
 
 [Афоня(1975)](https://max.ru/channel_mf_ussr/AZ-DFqf6Hc8)
+
+[Новогодние приключения Маши и Вити(1975)](https://max.ru/channel_mf_ussr/AZ-DRnB0ZCY)
