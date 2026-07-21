@@ -112,6 +112,7 @@
 
 [Ивась(1940)](https://max.ru/channel_mf_ussr/AZ990ejWD7Q)
 
+[Следствие ведут Колобки(1986)](https://max.ru/channel_mf_ussr/AZ-DGdGNWSk)
 
 ### Художественные фильмы
 
