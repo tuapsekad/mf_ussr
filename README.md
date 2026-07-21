@@ -142,3 +142,5 @@
 [Холодное лето пятьдесят третьего...(1987)](https://max.ru/channel_mf_ussr/AZ948rb6bp0)
 
 [Дачная поездка сержанта Цыбули(1979)](https://max.ru/channel_mf_ussr/AZ9_OdC3Iqs)
+
+[Афоня(1975)](https://max.ru/channel_mf_ussr/AZ-DFqf6Hc8)
