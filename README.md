@@ -116,6 +116,18 @@
 
 [Дарю тебе звезду(1974)](https://max.ru/channel_mf_ussr/AZ-DSVhQdPc)
 
+[Сестрица Алёнушка и братец Иванушка(1953)](https://max.ru/channel_mf_ussr/AZ-NQhIeBBQ)
+
+[Цуна и Цруцуна (1961)](https://max.ru/channel_mf_ussr/AZ-NSbgSNY4)
+
+[Дом для леопарда(1979)](https://max.ru/channel_mf_ussr/AZ-NTCy8eZA)
+
+[Сказка о волшебном гранате(1982)](https://max.ru/channel_mf_ussr/AZ-NT00LISM)
+
+[Волк и семеро козлят на новый лад(1975)](https://max.ru/channel_mf_ussr/AZ-NVDniYaQ)
+
+[Тигрёнок на подсолнухе(1981)](https://max.ru/channel_mf_ussr/AZ-NVF2GLDk)
+
 ### Художественные фильмы
 
 [Новые приключения неуловимых(1968)](https://max.ru/channel_mf_ussr/AZ88a-tDSV4)
@@ -149,3 +161,5 @@
 [Афоня(1975)](https://max.ru/channel_mf_ussr/AZ-DFqf6Hc8)
 
 [Новогодние приключения Маши и Вити(1975)](https://max.ru/channel_mf_ussr/AZ-DRnB0ZCY)
+
+[За спичками(1980)](https://max.ru/channel_mf_ussr/AZ-NSB5PQRs)
