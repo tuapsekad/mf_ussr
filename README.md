@@ -8,7 +8,7 @@
 
 [Высокая горка(1951)](https://max.ru/channel_mf_ussr/AZ88Zfm9TVk)
 
-[Весення сказка(1949)](https://max.ru/channel_mf_ussr/AZ88ZtaxaRI)
+[Весенняя сказка(1949)](https://max.ru/channel_mf_ussr/AZ88ZtaxaRI)
 
 [Дракон(1961)](https://max.ru/channel_mf_ussr/AZ88Z__xAII)
 
