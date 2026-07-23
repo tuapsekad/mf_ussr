@@ -64,8 +64,6 @@
 
 [Карлсон вернулся(1970)](https://max.ru/channel_mf_ussr/AZ9F_oOPRxU)
 
-[Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
-
 [Приключения капитана Врунгеля(1976-1979)](https://max.ru/channel_mf_ussr/AZ9GLsslQIo)
 
 [Чебурашка(1972)](https://max.ru/channel_mf_ussr/AZ9GRLTgfNc)
@@ -129,6 +127,8 @@
 [Тигрёнок на подсолнухе(1981)](https://max.ru/channel_mf_ussr/AZ-NVF2GLDk)
 
 ### Художественные фильмы
+
+[Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
 
 [Новые приключения неуловимых(1968)](https://max.ru/channel_mf_ussr/AZ88a-tDSV4)
 
