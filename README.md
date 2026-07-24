@@ -134,6 +134,8 @@
 
 [Пластилиновая ворона(1981)](https://max.ru/channel_mf_ussr/AZ-SeiQiT8s)
 
+[Путаница(1982)(https://max.ru/channel_mf_ussr/AZ-Sl0wqQKQ)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
