@@ -126,6 +126,8 @@
 
 [Тигрёнок на подсолнухе(1981)](https://max.ru/channel_mf_ussr/AZ-NVF2GLDk)
 
+[Сказка о глупом мышонке(1940)](https://max.ru/channel_mf_ussr/AZ-SZdjOMkQ)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
