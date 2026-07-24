@@ -128,6 +128,12 @@
 
 [Сказка о глупом мышонке(1940)](https://max.ru/channel_mf_ussr/AZ-SZdjOMkQ)
 
+[Сказка о царе Салтане(1984)](https://max.ru/channel_mf_ussr/AZ-Sb7ZhCAA)
+
+[Как старик корову продавал(1980)](https://max.ru/channel_mf_ussr/AZ-Sc7dLP68)
+
+[Пластилиновая ворона(1981)](https://max.ru/channel_mf_ussr/AZ-SeiQiT8s)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
