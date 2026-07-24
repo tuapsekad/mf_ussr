@@ -163,3 +163,7 @@
 [Новогодние приключения Маши и Вити(1975)](https://max.ru/channel_mf_ussr/AZ-DRnB0ZCY)
 
 [За спичками(1980)](https://max.ru/channel_mf_ussr/AZ-NSB5PQRs)
+
+[По секрету всему свету(1976)](https://max.ru/channel_mf_ussr/AZ-SSV2kZI4)
+
+[Честное волшебное(1975)](https://max.ru/channel_mf_ussr/AZ-SU2htILs)
