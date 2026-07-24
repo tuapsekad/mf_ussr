@@ -134,7 +134,7 @@
 
 [Пластилиновая ворона(1981)](https://max.ru/channel_mf_ussr/AZ-SeiQiT8s)
 
-[Путаница(1982)(https://max.ru/channel_mf_ussr/AZ-Sl0wqQKQ)
+[Путаница(1982)](https://max.ru/channel_mf_ussr/AZ-Sl0wqQKQ)
 
 ### Художественные фильмы
 
