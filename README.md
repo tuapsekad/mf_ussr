@@ -167,3 +167,5 @@
 [По секрету всему свету(1976)](https://max.ru/channel_mf_ussr/AZ-SSV2kZI4)
 
 [Честное волшебное(1975)](https://max.ru/channel_mf_ussr/AZ-SU2htILs)
+
+[Любовь и голуби(1984)](https://max.ru/channel_mf_ussr/AZ-SYZkNRhU)
