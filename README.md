@@ -136,6 +136,8 @@
 
 [Путаница(1982)](https://max.ru/channel_mf_ussr/AZ-Sl0wqQKQ)
 
+[Коля, Оля и Архимед(1972)](https://max.ru/channel_mf_ussr/AZ-h35rlA3g)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
@@ -179,3 +181,5 @@
 [Честное волшебное(1975)](https://max.ru/channel_mf_ussr/AZ-SU2htILs)
 
 [Любовь и голуби(1984)](https://max.ru/channel_mf_ussr/AZ-SYZkNRhU)
+
+[Тот самый Мюнхгаузен(1979)](https://max.ru/channel_mf_ussr/AZ-h9zAvJ0o)
