@@ -138,6 +138,8 @@
 
 [Коля, Оля и Архимед(1972)](https://max.ru/channel_mf_ussr/AZ-h35rlA3g)
 
+[Чертёнок с пушистым хвостом(1985)](https://max.ru/channel_mf_ussr/AZ-iCn5jUnQ)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
@@ -183,3 +185,8 @@
 [Любовь и голуби(1984)](https://max.ru/channel_mf_ussr/AZ-SYZkNRhU)
 
 [Тот самый Мюнхгаузен(1979)](https://max.ru/channel_mf_ussr/AZ-h9zAvJ0o)
+
+[Тайна железной двери(1970)](https://max.ru/channel_mf_ussr/AZ-iAKrVCPw)
+
+[Точка, точка, запятая...(1972)](https://max.ru/channel_mf_ussr/AZ-iCVmPb-Y)
+
