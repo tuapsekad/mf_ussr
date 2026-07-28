@@ -140,6 +140,8 @@
 
 [Чертёнок с пушистым хвостом(1985)](https://max.ru/channel_mf_ussr/AZ-iCn5jUnQ)
 
+[Тайна третьей планеты(1981)](https://max.ru/channel_mf_ussr/AZ-nPRDHZSw)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
@@ -190,3 +192,6 @@
 
 [Точка, точка, запятая...(1972)](https://max.ru/channel_mf_ussr/AZ-iCVmPb-Y)
 
+[Марья-искусница(1959)](https://max.ru/channel_mf_ussr/AZ-nI2TsTDs)
+
+[Добро пожаловать, или посторонним вход воспрещён(1964)](https://max.ru/channel_mf_ussr/AZ-nNhmCNeU)
