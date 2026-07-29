@@ -142,6 +142,8 @@
 
 [Тайна третьей планеты(1981)](https://max.ru/channel_mf_ussr/AZ-nPRDHZSw)
 
+[Что там под маской?(1991)](https://max.ru/channel_mf_ussr/AZ-sCdCoFTI)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
@@ -195,3 +197,12 @@
 [Марья-искусница(1959)](https://max.ru/channel_mf_ussr/AZ-nI2TsTDs)
 
 [Добро пожаловать, или посторонним вход воспрещён(1964)](https://max.ru/channel_mf_ussr/AZ-nNhmCNeU)
+
+[Усатый нянь(1977)](https://max.ru/channel_mf_ussr/AZ-sGUU9OEM)
+
+[Фантазёры(1965)](https://max.ru/channel_mf_ussr/AZ-sJ3FzTgI)
+
+
+
+[Великолепный Гоша(1981-1985)1 сезон (1-10 серия)](https://max.ru/channel_mf_ussr/AZ-spzrgbW0)
+
