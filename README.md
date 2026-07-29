@@ -146,6 +146,8 @@
 
 [Великолепный Гоша(1981-1985)1 сезон (1-10 серия)](https://max.ru/channel_mf_ussr/AZ-spzrgbW0)
 
+[Кот Котофеевич(1981)](https://max.ru/channel_mf_ussr/AZ-svSRcOtg)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
