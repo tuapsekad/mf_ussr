@@ -148,6 +148,10 @@
 
 [Кот Котофеевич(1981)](https://max.ru/channel_mf_ussr/AZ-svSRcOtg)
 
+[Сказка о зеркале(1981)](https://max.ru/channel_mf_ussr/AZ-xURNoNYA)
+
+[Это не про меня(1966)](https://max.ru/channel_mf_ussr/AZ-xWMQoP1M)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
