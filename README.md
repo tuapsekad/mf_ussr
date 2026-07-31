@@ -152,6 +152,8 @@
 
 [Это не про меня(1966)](https://max.ru/channel_mf_ussr/AZ-xWMQoP1M)
 
+[Приключения Незнайки и его друзей. 1 сезон(1971)](https://max.ru/channel_mf_ussr/AZ-2eIJrLn0)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
@@ -210,5 +212,6 @@
 
 [Фантазёры(1965)](https://max.ru/channel_mf_ussr/AZ-sJ3FzTgI)
 
+[Королевство кривых зеркал(1963)](https://max.ru/channel_mf_ussr/AZ-2mm_PIEg)
 
 
