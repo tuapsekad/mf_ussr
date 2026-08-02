@@ -214,4 +214,18 @@
 
 [Королевство кривых зеркал(1963)](https://max.ru/channel_mf_ussr/AZ-2mm_PIEg)
 
+[Седьмой джинн(1976)](https://max.ru/channel_mf_ussr/AZ_AvR7gV5s)
+
+[Питер Пэн(1987)](https://max.ru/channel_mf_ussr/AZ_AvR7gV5s)
+
+[Сказка о волшебном бисере](https://max.ru/channel_mf_ussr/AZ_AvR7gV5s)
+
+[Сказка о звездном мальчике(1984)](https://max.ru/channel_mf_ussr/AZ_AvR7gV5s)
+
+[Три оплеухи(1982)](https://max.ru/channel_mf_ussr/AZ_AvR7gV5s)
+
+[Сказки старого волшебника(1984)](https://max.ru/channel_mf_ussr/AZ_AvR7gV5s)
+
+[Волшебная папаха(1990)](https://max.ru/channel_mf_ussr/AZ_AvR7gV5s)
+
 
