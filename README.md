@@ -160,6 +160,10 @@
 
 [Ну, погоди!(1969-2017) 6-10 выпуск](https://max.ru/channel_mf_ussr/AZ_Gw94YV2M)
 
+[Ну, погоди!(1969-2017) 11-15 выпуск](https://max.ru/channel_mf_ussr/AZ_G66JYUQw)
+
+[Ну, погоди!(1969-2017) 16-22 выпуск](https://max.ru/channel_mf_ussr/AZ_HEurQKDI)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
