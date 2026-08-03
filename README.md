@@ -154,6 +154,8 @@
 
 [Приключения Незнайки и его друзей. 1 сезон(1971)](https://max.ru/channel_mf_ussr/AZ-2eIJrLn0)
 
+[Катерок(1970)](https://max.ru/channel_mf_ussr/AZ_F2WafDAo)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
@@ -228,4 +230,6 @@
 
 [Волшебная папаха(1990)](https://max.ru/channel_mf_ussr/AZ_BPUd0BeY)
 
+[Горя бояться – счастья не видать(1973)](https://max.ru/channel_mf_ussr/AZ_F0i9veLg)
 
+[Гиперболоид инженера Гарина(1965)](https://max.ru/channel_mf_ussr/AZ_F2KXzSOU)
