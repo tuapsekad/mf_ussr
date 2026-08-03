@@ -156,6 +156,10 @@
 
 [Катерок(1970)](https://max.ru/channel_mf_ussr/AZ_F2WafDAo)
 
+[Ну, погоди!(1969-2017) 1-5 выпуск](https://max.ru/channel_mf_ussr/AZ_Gpyh9Nps)
+
+[Ну, погоди!(1969-2017) 6-10 выпуск](https://max.ru/channel_mf_ussr/AZ_Gw94YV2M)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
