@@ -233,3 +233,5 @@
 [Горя бояться – счастья не видать(1973)](https://max.ru/channel_mf_ussr/AZ_F0i9veLg)
 
 [Гиперболоид инженера Гарина(1965)](https://max.ru/channel_mf_ussr/AZ_F2KXzSOU)
+
+[Операция «Ы» и другие приключения Шурика(1965)](https://max.ru/channel_mf_ussr/AZ_F7RS7TLE)
