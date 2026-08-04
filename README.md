@@ -252,3 +252,5 @@
 [Два дня чудес(1970)](https://max.ru/channel_mf_ussr/AZ_LtU1hBJA)
 
 [Сказание о храбром витязе Фэт-Фрумосе(1977)](https://max.ru/channel_mf_ussr/AZ_LwNqEcbQ)
+
+[Ещё не вечер(1974)](https://max.ru/channel_mf_ussr/AZ_MgZh_ejg)
