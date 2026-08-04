@@ -164,6 +164,11 @@
 
 [Ну, погоди!(1969-2017) 16-22 выпуск](https://max.ru/channel_mf_ussr/AZ_HEurQKDI)
 
+[Приключения Мюнхаузена(1972-1973) 1 -4 серии](https://max.ru/channel_mf_ussr/AZ_LPNOwGsk)
+
+[Янтарный замок(1959)](https://max.ru/channel_mf_ussr/AZ_LRwEZQh8)
+
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
@@ -243,3 +248,7 @@
 [Гиперболоид инженера Гарина(1965)](https://max.ru/channel_mf_ussr/AZ_F2KXzSOU)
 
 [Операция «Ы» и другие приключения Шурика(1965)](https://max.ru/channel_mf_ussr/AZ_F7RS7TLE)
+
+[Два дня чудес(1970)](https://max.ru/channel_mf_ussr/AZ_LtU1hBJA)
+
+[Сказание о храбром витязе Фэт-Фрумосе(1977)](https://max.ru/channel_mf_ussr/AZ_LwNqEcbQ)
