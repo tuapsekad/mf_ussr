@@ -254,3 +254,9 @@
 [Сказание о храбром витязе Фэт-Фрумосе(1977)](https://max.ru/channel_mf_ussr/AZ_LwNqEcbQ)
 
 [Ещё не вечер(1974)](https://max.ru/channel_mf_ussr/AZ_MgZh_ejg)
+
+[Небеса обетованные(1991)](https://max.ru/channel_mf_ussr/AZ_QJJg5dEY)
+
+[Деловые люди(1962)](https://max.ru/channel_mf_ussr/AZ_QXu_rP24)
+
+[Дождь в чужом городе(1979)](https://max.ru/channel_mf_ussr/AZ_RFRczWbU)
