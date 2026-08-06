@@ -164,10 +164,13 @@
 
 [Ну, погоди!(1969-2017) 16-22 выпуск](https://max.ru/channel_mf_ussr/AZ_HEurQKDI)
 
+[Ну, погоди!«Волшебная камера» (1976)](https://max.ru/channel_mf_ussr/AZ_VbF_aVtM)
+
 [Приключения Мюнхаузена(1972-1973) 1 -4 серии](https://max.ru/channel_mf_ussr/AZ_LPNOwGsk)
 
 [Янтарный замок(1959)](https://max.ru/channel_mf_ussr/AZ_LRwEZQh8)
 
+[Самый маленький гном(1977-1983)](https://max.ru/channel_mf_ussr/AZ_VfO8LUc0)
 
 ### Художественные фильмы
 
@@ -260,3 +263,12 @@
 [Деловые люди(1962)](https://max.ru/channel_mf_ussr/AZ_QXu_rP24)
 
 [Дождь в чужом городе(1979)](https://max.ru/channel_mf_ussr/AZ_RFRczWbU)
+
+[А человек играет на трубе(1970)](https://max.ru/channel_mf_ussr/AZ_VPjBlF7M)
+
+[Алый камень(1986)](https://max.ru/channel_mf_ussr/AZ_VWDgdEZc)
+
+[Сталкер(1979)](https://max.ru/channel_mf_ussr/AZ_VZGteSxQ)
+
+[Эти разные, разные, разные лица(1971)](https://max.ru/channel_mf_ussr/AZ_VaJMcfFY)
+
