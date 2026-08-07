@@ -272,3 +272,4 @@
 
 [Эти разные, разные, разные лица(1971)](https://max.ru/channel_mf_ussr/AZ_VaJMcfFY)
 
+[Иван Васильевич меняет профессию(1973)](https://max.ru/channel_mf_ussr/AZ_bO2rVGFo)
