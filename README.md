@@ -172,6 +172,8 @@
 
 [Самый маленький гном(1977-1983)](https://max.ru/channel_mf_ussr/AZ_VfO8LUc0)
 
+[38 попугаев(1976)](https://max.ru/channel_mf_ussr/AZ_bzWGeCR4)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
