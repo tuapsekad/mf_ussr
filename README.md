@@ -174,6 +174,8 @@
 
 [38 попугаев(1976)](https://max.ru/channel_mf_ussr/AZ_bzWGeCR4)
 
+[Про злую мачеху(1966)](https://max.ru/channel_mf_ussr/AZ_kl-acDDQ)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
@@ -275,3 +277,5 @@
 [Эти разные, разные, разные лица(1971)](https://max.ru/channel_mf_ussr/AZ_VaJMcfFY)
 
 [Иван Васильевич меняет профессию(1973)](https://max.ru/channel_mf_ussr/AZ_bO2rVGFo)
+
+[Старик Хоттабыч(1956)](https://max.ru/channel_mf_ussr/AZ_ksf_XJgY)
