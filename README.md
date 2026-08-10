@@ -279,3 +279,12 @@
 [Иван Васильевич меняет профессию(1973)](https://max.ru/channel_mf_ussr/AZ_bO2rVGFo)
 
 [Старик Хоттабыч(1956)](https://max.ru/channel_mf_ussr/AZ_ksf_XJgY)
+
+[Доброе утро(1955)](https://max.ru/channel_mf_ussr/AZ_p5bm5Wq8)
+
+[Мимино(1977)](https://max.ru/channel_mf_ussr/AZ_p7_oHeuc)
+
+[Вокзал для двоих(1982)](https://max.ru/channel_mf_ussr/AZ_p_NWoFAo)
+
+[Берегись автомобиля(1966)](https://max.ru/channel_mf_ussr/AZ_qE8OiJBQ)
+
