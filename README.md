@@ -288,4 +288,4 @@
 
 [Берегись автомобиля(1966)](https://max.ru/channel_mf_ussr/AZ_qE8OiJBQ)
 
-[Карнавальная ночь(1956)][(](https://max.ru/channel_mf_ussr/AZ_qVoigF2s))
+[Карнавальная ночь(1956)](https://max.ru/channel_mf_ussr/AZ_qVoigF2s)
