@@ -176,6 +176,8 @@
 
 [Про злую мачеху(1966)](https://max.ru/channel_mf_ussr/AZ_kl-acDDQ)
 
+[Маугли(1973)](https://max.ru/channel_mf_ussr/AZ_vvD91B5o)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
@@ -289,3 +291,21 @@
 [Берегись автомобиля(1966)](https://max.ru/channel_mf_ussr/AZ_qE8OiJBQ)
 
 [Карнавальная ночь(1956)](https://max.ru/channel_mf_ussr/AZ_qVoigF2s)
+
+[Гусарская баллада(1962)](https://max.ru/channel_mf_ussr/AZ_qklcMY34)
+
+[Служебный роман(1977)](https://max.ru/channel_mf_ussr/AZ_qyaencvQ)
+
+[Максим Перепелица(1955)](https://max.ru/channel_mf_ussr/AZ_vFJmhQWU)
+
+[Ирония судьбы, или С лёгким паром!(1975)](https://max.ru/channel_mf_ussr/AZ_vSPd1chM)
+
+[Жестокий романс(1984)](https://max.ru/channel_mf_ussr/AZ_vbSt8eKg)
+
+[Забытая мелодия для флейты(1987)](https://max.ru/channel_mf_ussr/AZ_vmk1TRxI)
+
+
+
+
+
+
