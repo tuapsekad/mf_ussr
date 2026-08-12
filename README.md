@@ -304,7 +304,11 @@
 
 [Забытая мелодия для флейты(1987)](https://max.ru/channel_mf_ussr/AZ_vmk1TRxI)
 
+[Мама(1976)](https://max.ru/channel_mf_ussr/AZ_0Gh3sS_Q)
 
+[Пеппи Длинныйчулок(1984)](https://max.ru/channel_mf_ussr/AZ_0Q-sdBU8)
+
+[Человек с бульвара Капуцинов(1987)](https://max.ru/channel_mf_ussr/AZ_0XGTFTUI)
 
 
 
