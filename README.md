@@ -312,4 +312,21 @@
 
 [Гардемарины, вперёд!(1987)](https://max.ru/channel_mf_ussr/AZ_00VxMBWQ)
 
+[Душа(1981)](https://max.ru/channel_mf_ussr/AZ_1DY-wGuY)
+
+[Адъютант его превосходительства(1970)](https://max.ru/channel_mf_ussr/AZ_1OwpZTOE)
+
+[Красная палатка(1969)](https://max.ru/channel_mf_ussr/AZ_1cAPzA40)
+
+[Четвёртый(1972)](https://max.ru/channel_mf_ussr/AZ_5T-vqKYE)
+
+[Обыкновенное чудо(1978)](https://max.ru/channel_mf_ussr/AZ_5Wiv3fUw)
+
+[Мелодии белой ночи(1976)](https://max.ru/channel_mf_ussr/AZ_5ZG-XRXs)
+
+[Крик тишины(1981)](https://max.ru/channel_mf_ussr/AZ_52GudEqc)
+
+[Тайна виллы «Грета»(1983)](https://max.ru/channel_mf_ussr/AZ_5_b3MeVM)
+
+[Лунная радуга(1983)](https://max.ru/channel_mf_ussr/AZ_6GTZxcu0)
 
