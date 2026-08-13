@@ -330,3 +330,7 @@
 
 [Лунная радуга(1983)](https://max.ru/channel_mf_ussr/AZ_6GTZxcu0)
 
+[Девчата(1961)](https://max.ru/channel_mf_ussr/AZ_6025OS1Y)
+
+[Джентльмены удачи(1971)](https://max.ru/channel_mf_ussr/AZ_62ZHeBWk)
+
