@@ -18,8 +18,6 @@
 
 [Зай и Чик(1952)](https://max.ru/channel_mf_ussr/AZ88anyCM-Q)
 
-[Друзья-товарищи(1951)](https://max.ru/channel_mf_ussr/AZ88bT0iJvs)
-
 [Соломенный бычок(1954)](https://max.ru/channel_mf_ussr/AZ88bcpwAd8)
 
 [Эхо(1982)](https://max.ru/channel_mf_ussr/AZ88cDZmagU)
@@ -181,6 +179,8 @@
 [Сказка про лень(1976)](https://max.ru/channel_mf_ussr/AZ_-p0vlOo4)
 
 ### Художественные фильмы
+
+[Друзья-товарищи(1951)](https://max.ru/channel_mf_ussr/AZ88bT0iJvs)
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
 
