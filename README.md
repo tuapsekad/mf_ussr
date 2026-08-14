@@ -178,6 +178,8 @@
 
 [Маугли(1973)](https://max.ru/channel_mf_ussr/AZ_vvD91B5o)
 
+[Сказка про лень(1976)](https://max.ru/channel_mf_ussr/AZ_-p0vlOo4)
+
 ### Художественные фильмы
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
@@ -333,4 +335,12 @@
 [Девчата(1961)](https://max.ru/channel_mf_ussr/AZ_6025OS1Y)
 
 [Джентльмены удачи(1971)](https://max.ru/channel_mf_ussr/AZ_62ZHeBWk)
+
+[12 стульев(1971)](https://max.ru/channel_mf_ussr/AZ_-gfSrGCg)
+
+[Не может быть!(1975)](https://max.ru/channel_mf_ussr/AZ_-je6aGSM)
+
+[Кин-дза-дза!(1986)](https://max.ru/channel_mf_ussr/AZ_-oShIOgU)
+
+[Золотые рога(1972)](https://max.ru/channel_mf_ussr/AZ_-rvlbNFE)
 
