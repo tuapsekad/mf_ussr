@@ -344,3 +344,17 @@
 
 [Золотые рога(1972)](https://max.ru/channel_mf_ussr/AZ_-rvlbNFE)
 
+[Верные друзья(1954)](https://max.ru/channel_mf_ussr/AZ__IzX_Jsk)
+
+[Где находится нофелет?(1987)](https://max.ru/channel_mf_ussr/AZ__vy1mYE4)
+
+[Женитьба Бальзаминова(1964)](https://max.ru/channel_mf_ussr/AaAInEREDFQ)
+
+[Ты – мне, я – тебе(1976)](https://max.ru/channel_mf_ussr/AaAIn9cBL9o)
+
+[Неисправимый лгун(1973)](https://max.ru/channel_mf_ussr/AaAIp7qNVms)
+
+[Старики-разбойники(1971)](https://max.ru/channel_mf_ussr/AaAI1av1TVo)
+
+[Вас ожидает гражданка Никанорова(1978)](https://max.ru/channel_mf_ussr/AaAI230qPBc)
+
