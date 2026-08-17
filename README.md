@@ -358,3 +358,14 @@
 
 [Вас ожидает гражданка Никанорова(1978)](https://max.ru/channel_mf_ussr/AaAI230qPBc)
 
+[Одиноким предоставляется общежитие(1983)](https://max.ru/channel_mf_ussr/AaAJDwGFLJY)
+
+[Девушка без адреса(1957)](https://max.ru/channel_mf_ussr/AaAN7p5pGB8)
+
+[Осенний марафон(1979)](https://max.ru/channel_mf_ussr/AaAN8V7BKbw)
+
+[Будьте моим мужем(1981)](https://max.ru/channel_mf_ussr/AaAN_JUrQ0M)
+
+[Трактористы(1939)](https://max.ru/channel_mf_ussr/AaAOEE-LOAI)
+
+[Зигзаг удачи(1968)](https://max.ru/channel_mf_ussr/AaAOIHs6cbY)
