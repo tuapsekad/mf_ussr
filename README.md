@@ -369,3 +369,10 @@
 [Трактористы(1939)](https://max.ru/channel_mf_ussr/AaAOEE-LOAI)
 
 [Зигзаг удачи(1968)](https://max.ru/channel_mf_ussr/AaAOIHs6cbY)
+
+[Суета сует(1979)](https://max.ru/channel_mf_ussr/AaAOiLGOAb8)
+
+[Опекун(1970)](https://max.ru/channel_mf_ussr/AaAOqT2QMxQ)
+
+[Дети Дон Кихота(1966)](https://max.ru/channel_mf_ussr/AaAOyiQjKQY)
+
