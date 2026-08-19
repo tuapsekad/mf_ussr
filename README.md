@@ -376,3 +376,14 @@
 
 [Дети Дон Кихота(1966)](https://max.ru/channel_mf_ussr/AaAOyiQjKQY)
 
+[Опасно для жизни!(1985)](https://max.ru/channel_mf_ussr/AaAYSt6HfDQ)
+
+[Дамы приглашают кавалеров(1980)](https://max.ru/channel_mf_ussr/AaAYV5ooAWY)
+
+[Комедия давно минувших дней(1980)](https://max.ru/channel_mf_ussr/AaAYgSbeHTo)
+
+[Золотой телёнок(1968)](https://max.ru/channel_mf_ussr/AaAYmNhjTQA)
+
+[Эта весёлая планета(1973)](https://max.ru/channel_mf_ussr/AaAZQa-zUMs)
+
+
