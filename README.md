@@ -387,3 +387,18 @@
 [Эта весёлая планета(1973)](https://max.ru/channel_mf_ussr/AaAZQa-zUMs)
 
 [Семь нянек(1962)](https://max.ru/channel_mf_ussr/AaAZug5jHdg)
+
+[Стряпуха(1965)](https://max.ru/channel_mf_ussr/AaAdToc-Z4k)
+
+[Акселератка(1987)](https://max.ru/channel_mf_ussr/AaAdX4UTbAM)
+
+[Как стать счастливым(1985)](https://max.ru/channel_mf_ussr/AaAdatW_Qog)
+
+[Старомодная комедия(1978)](https://max.ru/channel_mf_ussr/AaAdc9J9fn0)
+
+[Тридцать три(1965)](https://max.ru/channel_mf_ussr/AaAde5gGVo0)
+
+[Айболит-66(1966)](https://max.ru/channel_mf_ussr/AaAdrr2IKW0)
+
+[Инкогнито из Петербурга(1977)](https://max.ru/channel_mf_ussr/AaAdtGXOB9c)
+
