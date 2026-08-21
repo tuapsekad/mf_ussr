@@ -403,3 +403,10 @@
 [Инкогнито из Петербурга(1977)](https://max.ru/channel_mf_ussr/AaAdtGXOB9c)
 
 [Полосатый рейс(1961)](https://max.ru/channel_mf_ussr/AaAeHvYFE60)
+
+[Д`Артаньян и три мушкетера(1979)](https://max.ru/channel_mf_ussr/AaAiluBUJTg)
+
+[Обыкновенный человек(1956)](https://max.ru/channel_mf_ussr/AaAixp02DQM)
+
+[Весёлые ребята(1934)](https://max.ru/channel_mf_ussr/AaAi28IJbuw)
+
