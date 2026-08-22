@@ -178,6 +178,8 @@
 
 [Сказка про лень(1976)](https://max.ru/channel_mf_ussr/AZ_-p0vlOo4)
 
+[Летучий корабль(1979)](https://max.ru/channel_mf_ussr/AaAosHfZESE)
+
 ### Художественные фильмы
 
 [Друзья-товарищи(1951)](https://max.ru/channel_mf_ussr/AZ88bT0iJvs)
@@ -409,4 +411,14 @@
 [Обыкновенный человек(1956)](https://max.ru/channel_mf_ussr/AaAixp02DQM)
 
 [Весёлые ребята(1934)](https://max.ru/channel_mf_ussr/AaAi28IJbuw)
+
+[Сердца четырёх(1941)](https://max.ru/channel_mf_ussr/AaAnaExeXRQ)
+
+[Пакет(1965)](https://max.ru/channel_mf_ussr/AaAoZ-gKBJE)
+
+[Хозяйка гостиницы(1956)](https://max.ru/channel_mf_ussr/AaAogN8XZH0)
+
+[Подкидыш(1939)](https://max.ru/channel_mf_ussr/AaAoicbpJHA)
+
+[Две стрелы(1989)](https://max.ru/channel_mf_ussr/AaAopq-DXBk)
 
