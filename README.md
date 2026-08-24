@@ -443,3 +443,7 @@
 
 [Финист – Ясный сокол(1975)](https://max.ru/channel_mf_ussr/AaAyVlZwF7k)
 
+[Огонь, вода и… медные трубы(1967)](https://max.ru/channel_mf_ussr/AaAydI87HnE)
+
+[Ослиная шкура(1982)]](https://max.ru/channel_mf_ussr/AaAyfxU8fbs)
+
