@@ -180,6 +180,9 @@
 
 [Летучий корабль(1979)](https://max.ru/channel_mf_ussr/AaAosHfZESE)
 
+[Все мультфильмы про Муми-троллей (1978-1983)](https://max.ru/channel_mf_ussr/AaAs4AxhIeE)
+
+
 ### Художественные фильмы
 
 [Друзья-товарищи(1951)](https://max.ru/channel_mf_ussr/AZ88bT0iJvs)
@@ -422,3 +425,8 @@
 
 [Две стрелы(1989)](https://max.ru/channel_mf_ussr/AaAopq-DXBk)
 
+[Ёлки-палки!(1988)](https://max.ru/channel_mf_ussr/AaAs8odgZi0)
+
+[Снежная королева(1966)](https://max.ru/channel_mf_ussr/AaAtF8G6fFA)
+
+[Иван да Марья(1974)](https://max.ru/channel_mf_ussr/AaAtJfx5SsQ)
