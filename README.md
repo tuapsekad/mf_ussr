@@ -430,3 +430,16 @@
 [Снежная королева(1966)](https://max.ru/channel_mf_ussr/AaAtF8G6fFA)
 
 [Иван да Марья(1974)](https://max.ru/channel_mf_ussr/AaAtJfx5SsQ)
+
+[Морозко(1964)](https://max.ru/channel_mf_ussr/AaAyKHzTSp8)
+
+[Аленький цветочек(1978)](https://max.ru/channel_mf_ussr/AaAyLuQHSgM)
+
+[Вечера на хуторе близ Диканьки(1961)](https://max.ru/channel_mf_ussr/AaAyOK0oD4w)
+
+[Принцесса на горошине(1976)](https://max.ru/channel_mf_ussr/AaAyQVK8PNY)
+
+[Русалочка(1976)](https://max.ru/channel_mf_ussr/AaAyTrcSNzA)
+
+[Финист – Ясный сокол(1975)](https://max.ru/channel_mf_ussr/AaAyVlZwF7k)
+
