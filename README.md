@@ -445,5 +445,12 @@
 
 [Огонь, вода и… медные трубы(1967)](https://max.ru/channel_mf_ussr/AaAydI87HnE)
 
-[Ослиная шкура(1982)]](https://max.ru/channel_mf_ussr/AaAyfxU8fbs)
+[Ослиная шкура(1982)](https://max.ru/channel_mf_ussr/AaAyfxU8fbs)
+
+[После дождичка в четверг(1985)](https://max.ru/channel_mf_ussr/AaA3XuDkPvI)
+
+[Старая, старая сказка(1968)](https://max.ru/channel_mf_ussr/AaA3ZiVdDcU)
+
+[Там, на неведомых дорожках...(1982)](https://max.ru/channel_mf_ussr/AaA3i_g5bhA)
+
 
