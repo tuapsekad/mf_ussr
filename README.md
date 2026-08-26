@@ -453,4 +453,8 @@
 
 [Там, на неведомых дорожках...(1982)](https://max.ru/channel_mf_ussr/AaA3i_g5bhA)
 
+[Девушка с характером(1939)](https://max.ru/channel_mf_ussr/AaA30MaQGps)
+
+[Предчувствие любви(1982)](https://max.ru/channel_mf_ussr/AaA32w3fVK0)
+
 
