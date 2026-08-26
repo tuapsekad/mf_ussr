@@ -457,4 +457,16 @@
 
 [Предчувствие любви(1982)](https://max.ru/channel_mf_ussr/AaA32w3fVK0)
 
+[Волга-Волга(1938)](https://max.ru/channel_mf_ussr/AaA8VxQbapU)
+
+[Первая перчатка(1946)](https://max.ru/channel_mf_ussr/AaA8XZBwKZE)
+
+[Аэлита, не приставай к мужчинам(1988)](https://max.ru/channel_mf_ussr/AaA8akSNCxo)
+
+[Гражданин Лешка(1980)](https://max.ru/channel_mf_ussr/AaA8cXBcXZ0)
+
+[Весна(1947)](https://max.ru/channel_mf_ussr/AaA8dnpZEYI)
+
+[Цирк(1936)](https://max.ru/channel_mf_ussr/AaA8hXTHELQ)
+
 
