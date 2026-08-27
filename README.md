@@ -469,4 +469,20 @@
 
 [Цирк(1936)](https://max.ru/channel_mf_ussr/AaA8hXTHELQ)
 
+[Песня табунщика(1956)](https://max.ru/channel_mf_ussr/AaBBdeVgTUI)
+
+[Близнецы(1945)](https://max.ru/channel_mf_ussr/AaBBe22OSJs)
+
+[Баламут(1978)](https://max.ru/channel_mf_ussr/AaBBgET7O1U)
+
+[Только вдвоём(1976)](https://max.ru/channel_mf_ussr/AaBBjW7cTis)
+
+[Ошибка резидента(1968)](https://max.ru/channel_mf_ussr/AaBBrm_sOx8)
+
+[Судьба резидента(1970)](https://max.ru/channel_mf_ussr/AaBBxesoAxo)
+
+[Возвращение резидента(1982)](https://max.ru/channel_mf_ussr/AaBB0X9ffq8)
+
+[Конец операции «Резидент»(1986)](https://max.ru/channel_mf_ussr/AaBB-KocfRM)
+
 
