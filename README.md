@@ -182,6 +182,7 @@
 
 [Все мультфильмы про Муми-троллей (1978-1983)](https://max.ru/channel_mf_ussr/AaAs4AxhIeE)
 
+[Мальчик из Неаполя(1956)](https://max.ru/channel_mf_ussr/AaBCYkMMY0U)
 
 ### Художественные фильмы
 
@@ -484,5 +485,9 @@
 [Возвращение резидента(1982)](https://max.ru/channel_mf_ussr/AaBB0X9ffq8)
 
 [Конец операции «Резидент»(1986)](https://max.ru/channel_mf_ussr/AaBB-KocfRM)
+
+[Севастополь(1970)](https://max.ru/channel_mf_ussr/AaBCgjUPbRk)
+
+[Уроки французского(1978)](https://max.ru/channel_mf_ussr/AaBCnP4Ed9E)
 
 
