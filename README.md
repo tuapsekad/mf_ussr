@@ -490,4 +490,21 @@
 
 [Уроки французского(1978)](https://max.ru/channel_mf_ussr/AaBCnP4Ed9E)
 
+[Ералаш. Все сюжеты Саши Головина](https://max.ru/channel_mf_ussr/AaBGy1ULGbk)
+
+[Ералаш. Все сюжеты с Олей Кузьминой](https://max.ru/channel_mf_ussr/AaBG0ghUEgg)
+
+[Ералаш. Все сюжеты Миши Казакова](https://max.ru/channel_mf_ussr/AaBG2huKW8c)
+
+[Ералаш. Все сюжеты Саши Лойе](https://max.ru/channel_mf_ussr/AaBHF66fEC0)
+
+[Ералаш. Все сюжеты Ани Цукановой](https://max.ru/channel_mf_ussr/AaBHRmfyUGw)
+
+[Ералаш. Все сюжеты Вани Оранского](https://max.ru/channel_mf_ussr/AaBHSN9nCXU)
+
+[Ералаш. Все сюжеты с Сашей Новиковым](https://max.ru/channel_mf_ussr/AaBHSah1bbs)
+
+[Ваш любимый Ералаш(Сборник)](https://max.ru/channel_mf_ussr/AaBHqqCCJWU)
+
+
 
