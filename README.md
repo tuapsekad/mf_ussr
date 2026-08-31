@@ -506,5 +506,19 @@
 
 [Ваш любимый Ералаш(Сборник)](https://max.ru/channel_mf_ussr/AaBHqqCCJWU)
 
+[Аты-баты, шли солдаты...(1976)](https://max.ru/channel_mf_ussr/AaBWDc5ZG6w)
 
+[Маленькая Вера(1988)](https://max.ru/channel_mf_ussr/AaBWG74Obw0)
+
+[Пираты ХХ века(1979)](https://max.ru/channel_mf_ussr/AaBWHyxjIPA)
+
+[Осторожно, бабушка!(1960)](https://max.ru/channel_mf_ussr/AaBWK27JfXQ)
+
+[Ехали мы, ехали(1962)](https://max.ru/channel_mf_ussr/AaBWNIHGRCQ)
+
+[Мост через жизнь(1986)](https://max.ru/channel_mf_ussr/AaBWQSyXF_U)
+
+[Пацаны(1983)](https://max.ru/channel_mf_ussr/AaBWUb8CTK4)
+
+[Ширли-мырли(1995)](https://max.ru/channel_mf_ussr/AaBWeH9EaM8)
 
