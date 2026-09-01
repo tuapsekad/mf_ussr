@@ -522,3 +522,15 @@
 
 [Ширли-мырли(1995)](https://max.ru/channel_mf_ussr/AaBWeH9EaM8)
 
+[Невероятные приключения итальянцев в России(1974)](https://max.ru/channel_mf_ussr/AaBWqIZwZow)
+
+[Трое в лодке, не считая собаки(1979)](https://max.ru/channel_mf_ussr/AaBbHahACp0)
+
+[Соломенная шляпка(1974)](https://max.ru/channel_mf_ussr/AaBbKfsrZcc)
+
+[Блондинка за углом(1984)](https://max.ru/channel_mf_ussr/AaBbL4t6N4k)
+
+[Достояние республики(1971)](https://max.ru/channel_mf_ussr/AaBbPrwuSqk)
+
+[Безумный день, или Женитьба Фигаро(1973)](https://max.ru/channel_mf_ussr/AaBbRSjeQ3k)
+
