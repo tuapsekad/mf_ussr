@@ -546,6 +546,16 @@
 
 [Семнадцать мгновений весны(1973)10-12 серии](https://max.ru/channel_mf_ussr/AaBgg9QuMPI)
 
+[ТАСС уполномочен заявить…(1984)1-3 серии](https://max.ru/channel_mf_ussr/AaBmHVg0RnY)
+
+[ТАСС уполномочен заявить…(1984)4-6 серии](https://max.ru/channel_mf_ussr/AaBmJlFIOiY)
+
+[ТАСС уполномочен заявить…(1984)7-10 серии](https://max.ru/channel_mf_ussr/AaBmM97PIeM)
+
+[Место встречи изменить нельзя(1979)](https://max.ru/channel_mf_ussr/AaBqzGAmPms)
+
+[Белое солнце пустыни(1969)](https://max.ru/channel_mf_ussr/AaBrBnCJKZg)
+
 
 
 
