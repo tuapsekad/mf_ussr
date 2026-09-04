@@ -184,6 +184,11 @@
 
 [Мальчик из Неаполя(1956)](https://max.ru/channel_mf_ussr/AaBCYkMMY0U)
 
+[Умка. Умка ищет друга. Умка на ёлке(1969-1970)](https://max.ru/channel_mf_ussr/AaBrD-N_F3Q)
+
+[Двенадцать месяцев(1956)](https://max.ru/channel_mf_ussr/AaBrK6dcAP8)
+
+
 ### Художественные фильмы
 
 [Друзья-товарищи(1951)](https://max.ru/channel_mf_ussr/AZ88bT0iJvs)
