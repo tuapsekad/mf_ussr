@@ -561,6 +561,16 @@
 
 [Белое солнце пустыни(1969)](https://max.ru/channel_mf_ussr/AaBrBnCJKZg)
 
+[В бой идут одни «старики»(1973)](https://max.ru/channel_mf_ussr/AaB6HFHmXRA)
+
+[Печки-лавочки(1972)](https://max.ru/channel_mf_ussr/AaB6LyI9JeI)
+
+[Калина красная(1974)](https://max.ru/channel_mf_ussr/AaB6Qg9aVmo)
+
+[Бриллиантовая рука(1969)](https://max.ru/channel_mf_ussr/AaB6YLlnM1M)
+
+[Живёт такой парень(1964)](https://max.ru/channel_mf_ussr/AaB6d83gfag)
+
 
 
 
