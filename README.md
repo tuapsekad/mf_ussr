@@ -571,6 +571,18 @@
 
 [Живёт такой парень(1964)](https://max.ru/channel_mf_ussr/AaB6d83gfag)
 
+[Труффальдино из Бергамо(1976)](https://max.ru/channel_mf_ussr/AaB_xb18X3I)
+
+[По семейным обстоятельствам(1978)](https://max.ru/channel_mf_ussr/AaB_0RX4NYA)
+
+[Визит к Минотавру(1987)](https://max.ru/channel_mf_ussr/AaB_1pZPDGY)
+
+[Семь стариков и одна девушка(1968)](https://max.ru/channel_mf_ussr/AaB_6iTEa24)
+
+[Разведчики(1968)}(https://max.ru/channel_mf_ussr/AaB_7pVXMao)
+
+[Весна на Заречной улице(1956)](https://max.ru/channel_mf_ussr/AaCAADiPXao)
+
 
 
 
