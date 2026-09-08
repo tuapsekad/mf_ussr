@@ -579,7 +579,7 @@
 
 [Семь стариков и одна девушка(1968)](https://max.ru/channel_mf_ussr/AaB_6iTEa24)
 
-[Разведчики(1968)}(https://max.ru/channel_mf_ussr/AaB_7pVXMao)
+[Разведчики(1968)](https://max.ru/channel_mf_ussr/AaB_7pVXMao)
 
 [Весна на Заречной улице(1956)](https://max.ru/channel_mf_ussr/AaCAADiPXao)
 
