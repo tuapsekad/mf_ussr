@@ -583,6 +583,20 @@
 
 [Весна на Заречной улице(1956)](https://max.ru/channel_mf_ussr/AaCAADiPXao)
 
+[Служили два товарища(1968)](https://max.ru/channel_mf_ussr/AaCAUPugMr0)
+
+[Вечный зов(1973-1976)1-4 серии(1 сезон)](https://max.ru/channel_mf_ussr/AaCEZ6oLH30)
+
+[Вечный зов(1973-1976)5-8 серии(1 сезон)](https://max.ru/channel_mf_ussr/AaCEbfMhNdY)
+
+[Вечный зов(1973-1976)9-12 серии(1 сезон)](https://max.ru/channel_mf_ussr/AaCEb4YAIdg)
+
+[Вечный зов(1982-1983)1-4 серии(2 сезон)](https://max.ru/channel_mf_ussr/AaCEcxVtS3U)
+
+[Вечный зов(1982-1983)5-7 серии(2 сезон)](https://max.ru/channel_mf_ussr/AaCEdPOAQEc)
+
+[Паспорт(1990)](https://max.ru/channel_mf_ussr/AaCEeoysNcc)
+
 
 
 
