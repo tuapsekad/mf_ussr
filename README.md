@@ -597,6 +597,22 @@
 
 [Паспорт(1990)](https://max.ru/channel_mf_ussr/AaCEeoysNcc)
 
+[Про Витю, про Машу и морскую пехоту(1973)](https://max.ru/channel_mf_ussr/AaCEwhPeMqE)
+
+[С любимыми не расставайтесь(1979)](https://max.ru/channel_mf_ussr/AaCEx_jcNng)
+
+[Формула любви(1984)](https://max.ru/channel_mf_ussr/AaCEz-BJAmw)
+
+[Гений(1991)](https://max.ru/channel_mf_ussr/AaCE4txeMJI)
+
+[Спортлото-82(1982)](https://max.ru/channel_mf_ussr/AaCFCoP5DvU)
+
+[Частный детектив, или Операция «Кооперация»(1989)](https://max.ru/channel_mf_ussr/AaCFDaLrY5s)
+
+[Кавказская пленница, или Новые приключения Шурика(1967)](https://max.ru/channel_mf_ussr/AaCFIJmIN1I)
+
+[Приключения Тома Сойера и Гекльберри Финна(1981)](https://max.ru/channel_mf_ussr/AaCFOe1id2Q)
+
 
 
 
