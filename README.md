@@ -615,5 +615,18 @@
 
 [За двумя зайцами(1961)](https://max.ru/channel_mf_ussr/AaCKBo0sCEQ)
 
+[Юнона и Авось(1983)](https://max.ru/channel_mf_ussr/AaCOz_5vaWA)
+
+[Ко мне, Мухтар!(1964)](https://max.ru/channel_mf_ussr/AaCO2FMRMKw)
+
+[Белорусский вокзал(1970)](https://max.ru/channel_mf_ussr/AaCO4cz0XmQ)
+
+[Судьба человека(1959)](https://max.ru/channel_mf_ussr/AaCO5Y3iEVQ)
+
+[Друг(1987)](https://max.ru/channel_mf_ussr/AaCO61PSQuw)
+
+[Неоконченная пьеса для механического пианино(1977)](https://max.ru/channel_mf_ussr/AaCO7em4ISA)
+
+
 
 
