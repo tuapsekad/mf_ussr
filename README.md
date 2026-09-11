@@ -627,6 +627,6 @@
 
 [Неоконченная пьеса для механического пианино(1977)](https://max.ru/channel_mf_ussr/AaCO7em4ISA)
 
-
+[Белый Бим Чёрное ухо(1977)1-2 серии](https://max.ru/channel_mf_ussr/AaCPJIzvHBc)
 
 
