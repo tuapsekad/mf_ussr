@@ -188,6 +188,8 @@
 
 [Двенадцать месяцев(1956)](https://max.ru/channel_mf_ussr/AaBrK6dcAP8)
 
+[Цветик-семицветик(1948)](https://max.ru/channel_mf_ussr/AaCeu57LPnQ)
+
 
 ### Художественные фильмы
 
