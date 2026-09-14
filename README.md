@@ -629,4 +629,18 @@
 
 [Белый Бим Чёрное ухо(1977)1-2 серии](https://max.ru/channel_mf_ussr/AaCPJIzvHBc)
 
+[Не валяй дурака...(1997)](https://max.ru/channel_mf_ussr/AaCZUEoafaU)
+
+[Впервые замужем(1979)](https://max.ru/channel_mf_ussr/AaCeJ0WpWd0)
+
+[Возьми меня с собой(1989)](https://max.ru/channel_mf_ussr/AaCeKZTOPWI)
+
+[Лёгкая жизнь(1964)](https://max.ru/channel_mf_ussr/AaCeL_ayIlo)
+
+[Дежа вю(1989)](https://max.ru/channel_mf_ussr/AaCeNr7ZfDw)
+
+[А зори здесь тихие(1972)](https://max.ru/channel_mf_ussr/AaCeUDakPHM)
+
+
+
 
