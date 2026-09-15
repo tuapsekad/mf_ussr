@@ -643,6 +643,14 @@
 
 [А зори здесь тихие(1972)](https://max.ru/channel_mf_ussr/AaCeUDakPHM)
 
+[Экипаж(1979)](https://max.ru/channel_mf_ussr/AaCjd3IcPQY)
 
+[Завтрак на траве(1979)](https://max.ru/channel_mf_ussr/AaCjl9bmZc8)
+
+[Сватовство гусара(1979)](https://max.ru/channel_mf_ussr/AaCjr8yRe3Q)
+
+[Руслан и Людмила(1972)](https://max.ru/channel_mf_ussr/AaCj0LKRTMI)
+
+[Приключения Шерлока Холмса и доктора Ватсона: Собака Баскервилей(1981)](https://max.ru/channel_mf_ussr/AaCj5cPhagI)
 
 
