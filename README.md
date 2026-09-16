@@ -665,4 +665,6 @@
 
 [Свадьба в Малиновке(1967)](https://max.ru/channel_mf_ussr/AaCol92VbNw)
 
+[Колхоз Интертейнмент(2003)](https://max.ru/channel_mf_ussr/AaCosfsCa6o)
+
 
