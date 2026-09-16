@@ -655,4 +655,14 @@
 
 [Земля Санникова(1973)](https://max.ru/channel_mf_ussr/AaCkpl-LZ40)
 
+[Королева бензоколонки(1962)](https://max.ru/channel_mf_ussr/AaCofTf2buI)
+
+[Мэри Поппинс, до свидания(1983)](https://max.ru/channel_mf_ussr/AaCofuBJbIU)
+
+[В зоне особого внимания(1977)](https://max.ru/channel_mf_ussr/AaCohkWlOVM)
+
+[Ответный ход(1981)](https://max.ru/channel_mf_ussr/AaCoit3Ud_c)
+
+[Свадьба в Малиновке(1967)](https://max.ru/channel_mf_ussr/AaCol92VbNw)
+
 
