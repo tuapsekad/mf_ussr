@@ -667,4 +667,18 @@
 
 [Колхоз Интертейнмент(2003)](https://max.ru/channel_mf_ussr/AaCosfsCa6o)
 
+[Я шагаю по Москве(1964)](https://max.ru/channel_mf_ussr/AaCtmiVTf_o)
+
+[Преступление и наказание(1969)](https://max.ru/channel_mf_ussr/AaCtqWV9aeQ)
+
+[Бег(1970)](https://max.ru/channel_mf_ussr/AaCtviGLXwc)
+
+[Дни Турбиных(1976)](https://max.ru/channel_mf_ussr/AaCtzP7GMX4)
+
+[Про Красную Шапочку(1977)](https://max.ru/channel_mf_ussr/AaCt1m3jT0o)
+
+[Новые приключения капитана Врунгеля(1978)](https://max.ru/channel_mf_ussr/AaCt7081U8g)
+
+[По улицам комод водили(1978)](https://max.ru/channel_mf_ussr/AaCuA_nKOFU)
+
 
