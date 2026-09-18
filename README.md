@@ -681,4 +681,10 @@
 
 [По улицам комод водили(1978)](https://max.ru/channel_mf_ussr/AaCuA_nKOFU)
 
+[Зимний вечер в Гаграх(1985)](https://max.ru/channel_mf_ussr/AaCzX7LJJUE)
+
+[Чучело(1983)](https://max.ru/channel_mf_ussr/AaCzbcx6cDA)
+
+[31 июня(1978)](https://max.ru/channel_mf_ussr/AaCzhDR8PkU)
+
 
