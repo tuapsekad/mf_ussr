@@ -707,6 +707,8 @@
 
 [Баллада о солдате(1959)](https://max.ru/channel_mf_ussr/AaDC3Y_MaeA)
 
+[Офицеры(1971)](https://max.ru/channel_mf_ussr/AaDC-GZLXN8)
+
 
 
 
