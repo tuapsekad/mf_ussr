@@ -703,6 +703,10 @@
 
 [Отец солдата(1964)](https://max.ru/channel_mf_ussr/AaDCdeYHeLk)
 
+[Родня(1981)](https://max.ru/channel_mf_ussr/AaDCuB32N7g)
+
+[Баллада о солдате(1959)](https://max.ru/channel_mf_ussr/AaDC3Y_MaeA)
+
 
 
 
