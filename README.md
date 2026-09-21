@@ -689,7 +689,7 @@
 
 [Свой среди чужих, чужой среди своих(1974)](https://max.ru/channel_mf_ussr/AaC877ZFEFw)
 
-[https://max.ru/channel_mf_ussr/AaC877ZFEFw](https://max.ru/channel_mf_ussr/AaC88lavZBo)
+[Гостья из будущего(1985)](https://max.ru/channel_mf_ussr/AaC88lavZBo)
 
 [Чародеи(1982)](https://max.ru/channel_mf_ussr/AaC9E6ytBHg)
 
