@@ -190,6 +190,17 @@
 
 [Цветик-семицветик(1948)](https://max.ru/channel_mf_ussr/AaCeu57LPnQ)
 
+[А что ты умеешь?(1984)](https://max.ru/channel_mf_ussr/AaDDjq05Gns)
+
+[Дюймовочка(1964)](https://max.ru/channel_mf_ussr/AaDDj3nqSak)
+
+[Русалочка(1968)](https://max.ru/channel_mf_ussr/AaDDkI23VOo)
+
+[Серая Шейка(1948)](https://max.ru/channel_mf_ussr/AaDDkQkMeoQ)
+
+[Гадкий утёнок(1956)](https://max.ru/channel_mf_ussr/AaDDkj1OB4s)
+
+
 
 ### Художественные фильмы
 
