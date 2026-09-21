@@ -693,6 +693,16 @@
 
 [Чародеи(1982)](https://max.ru/channel_mf_ussr/AaC9E6ytBHg)
 
+[Вечерний лабиринт(1980)](https://max.ru/channel_mf_ussr/AaDCXlzNVm0)
+
+[Доживём до понедельника(1968)](https://max.ru/channel_mf_ussr/AaDCaJntMrE)
+
+[Принцесса цирка(1982)](https://max.ru/channel_mf_ussr/AaDCaeWWO7Q)
+
+[Они сражались за Родину(1975)](https://max.ru/channel_mf_ussr/AaDCdDnve0o)
+
+[Отец солдата(1964)](https://max.ru/channel_mf_ussr/AaDCdeYHeLk)
+
 
 
 
