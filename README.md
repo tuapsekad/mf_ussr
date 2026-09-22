@@ -662,8 +662,6 @@
 
 [Руслан и Людмила(1972)](https://max.ru/channel_mf_ussr/AaCj0LKRTMI)
 
-[Приключения Шерлока Холмса и доктора Ватсона: Собака Баскервилей(1981)](https://max.ru/channel_mf_ussr/AaCj5cPhagI)
-
 [Земля Санникова(1973)](https://max.ru/channel_mf_ussr/AaCkpl-LZ40)
 
 [Королева бензоколонки(1962)](https://max.ru/channel_mf_ussr/AaCofTf2buI)
@@ -729,5 +727,21 @@
 [В поисках капитана Гранта(1985)](https://max.ru/channel_mf_ussr/AaDHkAIXHho)
 
 [Война и мир(1965)](https://max.ru/channel_mf_ussr/AaDHui-HX2M)
+
+[Шерлок Холмс и доктор Ватсон: Знакомство(1979) Фильм 1-й](https://max.ru/channel_mf_ussr/AaDIB1dkRYU)
+
+[Шерлок Холмс и доктор Ватсон: Кровавая надпись(1980) Фильм 2-й](https://max.ru/channel_mf_ussr/AaDICraaY6A)
+
+[Приключения Шерлока Холмса и доктора Ватсона: Король шантажа(1980) Фильм 3-й](https://max.ru/channel_mf_ussr/AaDIDeZzbho)
+
+[Шерлок Холмс и доктор Ватсон: Смертельная схватка(1980) Фильм 4-й](https://max.ru/channel_mf_ussr/AaDIEElgDyk)
+
+[Приключения Шерлока Холмса и доктора Ватсона: Охота на тигра(1980) Фильм 5-й](https://max.ru/channel_mf_ussr/AaDIEuioahc)
+
+[Приключения Шерлока Холмса и доктора Ватсона: Собака Баскервилей(1981) Фильм 6-й](https://max.ru/channel_mf_ussr/AaCj5cPhagI)
+
+[Шерлок Холмс и доктор Ватсон: Сокровища Агры Фильм 7-й](https://max.ru/channel_mf_ussr/AaDIJP33Kas)
+
+[Шерлок Холмс и доктор Ватсон: Двадцатый век начинается(1987) Фильм 8-й](https://max.ru/channel_mf_ussr/AaDILDa7JZU)
 
 
