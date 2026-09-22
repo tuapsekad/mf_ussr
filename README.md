@@ -726,6 +726,8 @@
 
 [Собака на сене(1977)](https://max.ru/channel_mf_ussr/AaDHdMu4aHc)
 
+[В поисках капитана Гранта(1985)](https://max.ru/channel_mf_ussr/AaDHkAIXHho)
 
+[Война и мир(1965)](https://max.ru/channel_mf_ussr/AaDHui-HX2M)
 
 
