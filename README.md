@@ -720,6 +720,12 @@
 
 [Офицеры(1971)](https://max.ru/channel_mf_ussr/AaDC-GZLXN8)
 
+[Криминальный талант(1988)](https://max.ru/channel_mf_ussr/AaDHV3HLaqU)
+
+[Здравствуйте, я ваша тётя!(1975)](https://max.ru/channel_mf_ussr/AaDHXQRsfrQ)
+
+[Собака на сене(1977)](https://max.ru/channel_mf_ussr/AaDHdMu4aHc)
+
 
 
 
