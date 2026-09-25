@@ -744,4 +744,12 @@
 
 [Шерлок Холмс и доктор Ватсон: Двадцатый век начинается(1987) Фильм 8-й](https://max.ru/channel_mf_ussr/AaDILDa7JZU)
 
+[Два капитана(1976)](https://max.ru/channel_mf_ussr/AaDNGn5cNiE)
+
+[Старший сын(1976)](https://max.ru/channel_mf_ussr/AaDNJKl_IK8)
+
+[Мой ласковый и нежный зверь(1978)](https://max.ru/channel_mf_ussr/AaDR7iMYITw)
+
+[Зелёный фургон(1983)](https://max.ru/channel_mf_ussr/AaDWtZoBPj0)
+
 
