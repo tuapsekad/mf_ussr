@@ -758,4 +758,11 @@
 
 [Летят журавли(1957)](https://max.ru/channel_mf_ussr/AaDXf1lNZGs)
 
+[Асса(1987)](https://max.ru/channel_mf_ussr/AaDmXQ5JVas)
+
+[Иваново детство(1962)](https://max.ru/channel_mf_ussr/AaDmbBGyTfs)
+
+[Через тернии к звёздам(1980)](https://max.ru/channel_mf_ussr/AaDmbX8dfuY)
+
+
 
