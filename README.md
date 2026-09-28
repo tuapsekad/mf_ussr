@@ -752,4 +752,10 @@
 
 [Зелёный фургон(1983)](https://max.ru/channel_mf_ussr/AaDWtZoBPj0)
 
+[Убить дракона(1988)](https://max.ru/channel_mf_ussr/AaDXThK_Ul0)
+
+[На войне как на войне(1968)](https://max.ru/channel_mf_ussr/AaDXbfwzRso)
+
+[Летят журавли(1957)](https://max.ru/channel_mf_ussr/AaDXf1lNZGs)
+
 
