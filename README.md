@@ -764,5 +764,15 @@
 
 [Через тернии к звёздам(1980)](https://max.ru/channel_mf_ussr/AaDmbX8dfuY)
 
+[Зимняя вишня(1985)](https://max.ru/channel_mf_ussr/AaDmgTYRO5c)
+
+[Десять негритят(1987)](https://max.ru/channel_mf_ussr/AaDmmcJKLCU)
+
+[Розыгрыш(1976)](https://max.ru/channel_mf_ussr/AaDmmtZlcVc)
+
+[Покровские ворота(1983)](https://max.ru/channel_mf_ussr/AaDm3MK1NBI)
+
+
+
 
 
