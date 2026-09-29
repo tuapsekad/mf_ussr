@@ -772,6 +772,18 @@
 
 [Покровские ворота(1983)](https://max.ru/channel_mf_ussr/AaDm3MK1NBI)
 
+[Тихий Дон(1957)](https://max.ru/channel_mf_ussr/AaDrYumRSYU)
+
+[Сказка странствий(1983)](https://max.ru/channel_mf_ussr/AaDrZFeMdh4)
+
+[Влюблён по собственному желанию(1982)](https://max.ru/channel_mf_ussr/AaDrb07XScw)
+
+[Вам и не снилось...(1980)](https://max.ru/channel_mf_ussr/AaDrf_h9SY8)
+
+[Три тополя на Плющихе(1968)](https://max.ru/channel_mf_ussr/AaDrgOZeSeo)
+
+[Собачье сердце(1988)](https://max.ru/channel_mf_ussr/AaDrgfhDJUs)
+
 
 
 
