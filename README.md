@@ -200,6 +200,8 @@
 
 [Гадкий утёнок(1956)](https://max.ru/channel_mf_ussr/AaDDkj1OB4s)
 
+[Доктор Айболит(1984) Мультфильм. Все серии](https://max.ru/channel_mf_ussr/AaD2iZAge-I)
+
 
 
 ### Художественные фильмы
