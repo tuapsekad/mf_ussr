@@ -784,6 +784,18 @@
 
 [Собачье сердце(1988)](https://max.ru/channel_mf_ussr/AaDrgfhDJUs)
 
+[Тени исчезают в полдень(1971)](https://max.ru/channel_mf_ussr/AaDwcXJBZs0)
+
+[Полёты во сне и наяву(1983)](https://max.ru/channel_mf_ussr/AaDwe4-6OQI)
+
+[Когда деревья были большими(1961)](https://max.ru/channel_mf_ussr/AaDwg_YCdxo)
+
+[Летучая мышь(1978)](https://max.ru/channel_mf_ussr/AaDwjJ85EgM)
+
+[Бумбараш(1972)](https://max.ru/channel_mf_ussr/AaDwjieIERk)
+
+[Дайте жалобную книгу(1965)](https://max.ru/channel_mf_ussr/AaDwkz5VPrY)
+
 
 
 
