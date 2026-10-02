@@ -804,6 +804,14 @@
 
 [Приключения Петрова и Васечкина, обыкновенные и невероятные(1983)](https://max.ru/channel_mf_ussr/AaD2QXWZe24)
 
+[Кодовое название «Южный гром»(1980)](https://max.ru/channel_mf_ussr/AaD60YAYZeE)
+
+[Лето рядового Дедова(1971)](https://max.ru/channel_mf_ussr/AaD7GJXZV9Q)
+
+[Дети солнца(1985)](https://max.ru/channel_mf_ussr/AaD7M9FHYWM)
+
+[Обратной дороги нет(1970)](https://max.ru/channel_mf_ussr/AaD7Nr4secc)
+
 
 
 
