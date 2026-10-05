@@ -812,6 +812,22 @@
 
 [Обратной дороги нет(1970)](https://max.ru/channel_mf_ussr/AaD7Nr4secc)
 
+[Частное лицо(1980)](https://max.ru/channel_mf_ussr/AaEKQ6eQX-U)
+
+[Гонки по вертикали(1982)](https://max.ru/channel_mf_ussr/AaEKSBckdeg)
+
+[Дни хирурга Мишкина(1977)](https://max.ru/channel_mf_ussr/AaEKaiASP5k)
+
+[Неоконченный урок(1980)](https://max.ru/channel_mf_ussr/AaEKdEWBOag)
+
+[Выше Радуги(1986)](https://max.ru/channel_mf_ussr/AaEKeeLTcUk)
+
+[Повод(1986)](https://max.ru/channel_mf_ussr/AaEKhh8qCaM)
+
+[]()
+
+
+
 
 
 
