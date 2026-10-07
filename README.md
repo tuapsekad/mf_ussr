@@ -826,7 +826,13 @@
 
 [Рассмешите клоуна(1984)](https://max.ru/channel_mf_ussr/AaELHX3vStQ)
 
+[Курьер(1986)](https://max.ru/channel_mf_ussr/AaEQYB0PTN0)
 
+[Сказка о потерянном времени(1964)](https://max.ru/channel_mf_ussr/AaEQfiqgELc)
+
+[Большая перемена(1972)](https://max.ru/channel_mf_ussr/AaEVR8VzTJE)
+
+[Женя, Женечка и «катюша»(1967)](https://max.ru/channel_mf_ussr/AaEVfgExRko)
 
 
 
