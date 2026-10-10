@@ -834,6 +834,12 @@
 
 [Женя, Женечка и «катюша»(1967)](https://max.ru/channel_mf_ussr/AaEVfgExRko)
 
+[Мужики!..(1981)](https://max.ru/channel_mf_ussr/AaEZwORsLeY)
+
+[Щит и меч(1968)](https://max.ru/channel_mf_ussr/AaEbJlN1cJs)
+
+[Остров сокровищ(1982)](https://max.ru/channel_mf_ussr/AaEkMdmCQMc)
+
 
 
 
