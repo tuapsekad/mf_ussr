@@ -848,5 +848,9 @@
 
 [Когда казаки плачут(1963)](https://max.ru/channel_mf_ussr/AaEpQwG4dsY)
 
+[Сказ про то, как царь Пётр арапа женил(1976)](https://max.ru/channel_mf_ussr/AaEpT_6XdFE)
+
+[Расмус-бродяга(1978)](https://max.ru/channel_mf_ussr/AaEpZK8qaWg)
+
 
 
