@@ -202,6 +202,8 @@
 
 [Доктор Айболит(1984) Мультфильм. Все серии](https://max.ru/channel_mf_ussr/AaD2iZAge-I)
 
+[Ворона и лисица, кукушка и петух(1953)](https://max.ru/channel_mf_ussr/AaEpPBWSRMw)
+
 
 
 ### Художественные фильмы
@@ -840,7 +842,11 @@
 
 [Остров сокровищ(1982)](https://max.ru/channel_mf_ussr/AaEkMdmCQMc)
 
+[Неуловимые мстители(1966)](https://max.ru/channel_mf_ussr/AaEkti-TGno)
 
+[Как дома, как дела?(1987)](https://max.ru/channel_mf_ussr/AaEpNRr9ZS8)
+
+[Когда казаки плачут(1963)](https://max.ru/channel_mf_ussr/AaEpQwG4dsY)
 
 
 
