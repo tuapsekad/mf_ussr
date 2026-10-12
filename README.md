@@ -852,5 +852,11 @@
 
 [Расмус-бродяга(1978)](https://max.ru/channel_mf_ussr/AaEpZK8qaWg)
 
+[Звезда пленительного счастья(1975)](https://max.ru/channel_mf_ussr/AaEubdEmW1Q)
+
+[Всадник без головы(1973)](https://max.ru/channel_mf_ussr/AaEulh-yVHU)
+
+[Узник замка Иф(1988)](https://max.ru/channel_mf_ussr/AaEutLWaPLk)
+
 
 
