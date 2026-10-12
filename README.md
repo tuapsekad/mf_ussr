@@ -858,5 +858,11 @@
 
 [Узник замка Иф(1988)](https://max.ru/channel_mf_ussr/AaEutLWaPLk)
 
+[Человек-амфибия(1961)](https://max.ru/channel_mf_ussr/AaEvIYc8fhQ)
+
+[Начало(1970)](https://max.ru/channel_mf_ussr/AaEvc7wPdO0)
+
+[Волшебная лампа Аладдина(1966)](https://max.ru/channel_mf_ussr/AaEvjiNDPh4)
+
 
 
