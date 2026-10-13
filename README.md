@@ -874,5 +874,7 @@
 
 [Самая обаятельная и привлекательная(1985)](https://max.ru/channel_mf_ussr/AaEzxXBgbJc)
 
+[Каникулы Петрова и Васечкина, обыкновенные и невероятные(1984)](https://max.ru/channel_mf_ussr/AaE0A1HXBsY)
+
 
 
