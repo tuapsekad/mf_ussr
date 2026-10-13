@@ -864,5 +864,15 @@
 
 [Волшебная лампа Аладдина(1966)](https://max.ru/channel_mf_ussr/AaEvjiNDPh4)
 
+[Укротительница тигров(1954)](https://max.ru/channel_mf_ussr/AaEzddUpOd4)
+
+[Капитан Немо(1976)](https://max.ru/channel_mf_ussr/AaEzglsLJOQ)
+
+[Мы из джаза(1983)](https://max.ru/channel_mf_ussr/AaEzjhduO3k)
+
+[Где находится нофелет?(1987)](https://max.ru/channel_mf_ussr/AaEzk37oMUM)
+
+[Самая обаятельная и привлекательная(1985)](https://max.ru/channel_mf_ussr/AaEzxXBgbJc)
+
 
 
