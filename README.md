@@ -204,6 +204,12 @@
 
 [Ворона и лисица, кукушка и петух(1953)](https://max.ru/channel_mf_ussr/AaEpPBWSRMw)
 
+[Осьминожки(1976)](https://max.ru/channel_mf_ussr/AaE4nMZ1VL0)
+
+[Молодильные яблоки(1974)](https://max.ru/channel_mf_ussr/AaE4ssEPIsc)
+
+[Снежная королева(1957)](https://max.ru/channel_mf_ussr/AaE4s6AOC74)
+
 
 
 ### Художественные фильмы
@@ -875,6 +881,12 @@
 [Самая обаятельная и привлекательная(1985)](https://max.ru/channel_mf_ussr/AaEzxXBgbJc)
 
 [Каникулы Петрова и Васечкина, обыкновенные и невероятные(1984)](https://max.ru/channel_mf_ussr/AaE0A1HXBsY)
+
+[Тегеран-43(1980)](https://max.ru/channel_mf_ussr/AaE4kEuvIlA)
+
+[Горячий снег(1972)](https://max.ru/channel_mf_ussr/AaE4ld04Phc)
+
+[Контрабанда(1976)](https://max.ru/channel_mf_ussr/AaE4sNApBEE)
 
 
 
