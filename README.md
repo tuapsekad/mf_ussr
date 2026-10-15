@@ -898,6 +898,13 @@
 
 [Шла собака по роялю(1978)](https://max.ru/channel_mf_ussr/AaE-GMfHA3c)
 
+[Три плюс два(1963)](https://max.ru/channel_mf_ussr/AaE-jyZzHyE)
+
+[Выйти замуж за капитана(1985)](https://max.ru/channel_mf_ussr/AaE-nQ4hEmc)
+
+[Волшебная сила(1970)](https://max.ru/channel_mf_ussr/AaE-pO-FAUQ)
+
+
 
 
 
