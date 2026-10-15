@@ -888,5 +888,16 @@
 
 [Контрабанда(1976)](https://max.ru/channel_mf_ussr/AaE4sNApBEE)
 
+[Окно в Париж(1993)](https://max.ru/channel_mf_ussr/AaE9xMjHGpI)
+
+[Карнавал(1981)](https://max.ru/channel_mf_ussr/AaE90KO5CYQ)
+
+[Запасной игрок(1954)](https://max.ru/channel_mf_ussr/AaE975sOHL4)
+
+[Здравствуй и прощай(1972)](https://max.ru/channel_mf_ussr/AaE-FCrVO94)
+
+[Шла собака по роялю(1978)](https://max.ru/channel_mf_ussr/AaE-GMfHA3c)
+
+
 
 
