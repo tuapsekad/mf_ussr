@@ -904,6 +904,22 @@
 
 [Волшебная сила(1970)](https://max.ru/channel_mf_ussr/AaE-pO-FAUQ)
 
+[Ссора в Лукашах(1959)](https://max.ru/channel_mf_ussr/AaFC_DyvGFI)
+
+[Улица полна неожиданностей(1957)](https://max.ru/channel_mf_ussr/AaFDBYnmDV4)
+
+[Не будите спящую собаку(1991)](https://max.ru/channel_mf_ussr/AaFDF9zFUVY)
+
+[Приключения принца Флоризеля(1981)](https://max.ru/channel_mf_ussr/AaFDM_ZHcAU)
+
+[Морской охотник(1954)](https://max.ru/channel_mf_ussr/AaFDVZnPFEc)
+
+[Дорога(1955)](https://max.ru/channel_mf_ussr/AaFDV3H4RN8)
+
+[Счастливый рейс(1949)](https://max.ru/channel_mf_ussr/AaFDaUm2Eto)
+
+[Дело Румянцева(1955)](https://max.ru/channel_mf_ussr/AaFDmYwTWXs)
+
 
 
 
