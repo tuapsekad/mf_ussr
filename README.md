@@ -926,6 +926,17 @@
 
 [Королевская регата(1966)](https://max.ru/channel_mf_ussr/AaFNo7AbN8Y)
 
+[Не имей 100 рублей...(1959)](https://max.ru/channel_mf_ussr/AaFSThjpMtE)
+
+[Повесть о молодожёнах(1959)](https://max.ru/channel_mf_ussr/AaFSUo4Fa3U)
+
+[Трудное счастье(1958)](https://max.ru/channel_mf_ussr/AaFSWpU2YT0)
+
+[Снежная сказка(1959)](https://max.ru/channel_mf_ussr/AaFSYsJaW2E)
+
+[Черёмушки(1963)](https://max.ru/channel_mf_ussr/AaFSbSmbBZo)
+
+
 
 
 
