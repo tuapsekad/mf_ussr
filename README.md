@@ -906,8 +906,6 @@
 
 [Ссора в Лукашах(1959)](https://max.ru/channel_mf_ussr/AaFC_DyvGFI)
 
-[Улица полна неожиданностей(1957)](https://max.ru/channel_mf_ussr/AaFDBYnmDV4)
-
 [Не будите спящую собаку(1991)](https://max.ru/channel_mf_ussr/AaFDF9zFUVY)
 
 [Приключения принца Флоризеля(1981)](https://max.ru/channel_mf_ussr/AaFDM_ZHcAU)
@@ -921,6 +919,15 @@
 [Дело Румянцева(1955)](https://max.ru/channel_mf_ussr/AaFDmYwTWXs)
 
 [Подранки(1976)](https://max.ru/channel_mf_ussr/AaFI8hKDGmU)
+
+[Неповторимая весна(1957)](https://max.ru/channel_mf_ussr/AaFNg_rPC_M)
+
+[Улица полна неожиданностей(1957)](https://max.ru/channel_mf_ussr/AaFNiYG8VpQ)
+
+[Королевская регата(1966)](https://max.ru/channel_mf_ussr/AaFNo7AbN8Y)
+
+
+
 
 
 
