@@ -938,6 +938,13 @@
 
 [Черёмушки(1963)](https://max.ru/channel_mf_ussr/AaFSbSmbBZo)
 
+[Крепостная актриса(1963)](https://max.ru/channel_mf_ussr/AaFShdO1BUI)
+
+[Донская повесть(1964)](https://max.ru/channel_mf_ussr/AaFSkzDsUA4)
+
+[Ожидание полковника Шалыгина(1981)](https://max.ru/channel_mf_ussr/AaFSrfClMq8)
+
+
 
 
 
