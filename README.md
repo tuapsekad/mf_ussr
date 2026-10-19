@@ -210,6 +210,8 @@
 
 [Снежная королева(1957)](https://max.ru/channel_mf_ussr/AaE4s6AOC74)
 
+[Кот-рыболов(1964)](https://max.ru/channel_mf_ussr/AaFSdlV_eQA)
+
 
 
 ### Художественные фильмы
