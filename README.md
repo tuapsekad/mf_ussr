@@ -944,7 +944,9 @@
 
 [Ожидание полковника Шалыгина(1981)](https://max.ru/channel_mf_ussr/AaFSrfClMq8)
 
+[Над нами Южный Крест(1965)](https://max.ru/channel_mf_ussr/AaFTfNQpTzs)
 
+[Сказки русского леса(1966)](https://max.ru/channel_mf_ussr/AaFTi0F6DwU)
 
 
 
