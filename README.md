@@ -964,7 +964,7 @@
 
 [Чук и Гек(1953)](https://max.ru/channel_mf_ussr/AaFYIFf3HOw)
 
-
+[Жил-был настройщик(1979)](https://max.ru/channel_mf_ussr/AaFYoF_bHVI)
 
 
 
