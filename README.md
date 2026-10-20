@@ -956,7 +956,13 @@
 
 [Урок литературы(1968)](https://max.ru/channel_mf_ussr/AaFXsxyyUpM)
 
+[Гори, гори, моя звезда(1969)](https://max.ru/channel_mf_ussr/AaFX7pU1X1o)
 
+[Меж высоких хлебов(1970)](https://max.ru/channel_mf_ussr/AaFYAO1ZfqY)
+
+[Не горюй!(1969)](https://max.ru/channel_mf_ussr/AaFYA-8JWjw)
+
+[Чук и Гек(1953)](https://max.ru/channel_mf_ussr/AaFYIFf3HOw)
 
 
 
