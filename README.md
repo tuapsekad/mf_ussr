@@ -948,6 +948,25 @@
 
 [Сказки русского леса(1966)](https://max.ru/channel_mf_ussr/AaFTi0F6DwU)
 
+[Первый курьер(1968)](https://max.ru/channel_mf_ussr/AaFXn2QVAcI)
+
+[Виринея(1968)](https://max.ru/channel_mf_ussr/AaFXqQobZik)
+
+[Фокусник(1967)](https://max.ru/channel_mf_ussr/AaFXr3omOdk)
+
+[Урок литературы(1968)](https://max.ru/channel_mf_ussr/AaFXsxyyUpM)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
