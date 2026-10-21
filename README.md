@@ -966,6 +966,15 @@
 
 [Жил-был настройщик(1979)](https://max.ru/channel_mf_ussr/AaFYoF_bHVI)
 
+[Чайковский(1970)](https://max.ru/channel_mf_ussr/AaFcvSfEBXU)
+
+[Карусель(1970)](https://max.ru/channel_mf_ussr/AaFcwHO1X34)
+
+[Ехали в трамвае Ильф и Петров(1972)](https://max.ru/channel_mf_ussr/AaFcxGGMVFY)
+
+[Премия(1974)](https://max.ru/channel_mf_ussr/AaFc2tPJCnA)
+
+[Совсем пропащий(1973)](https://max.ru/channel_mf_ussr/AaFc7YaaNN0)
 
 
 
