@@ -984,7 +984,13 @@
 
 [Легенда о Тиле(1976)](https://max.ru/channel_mf_ussr/AaFiAKSbZIc)
 
+[Длинное, длинное дело(1976)](https://max.ru/channel_mf_ussr/AaFiGnoxLK4)
 
+[Женитьба(1977)](https://max.ru/channel_mf_ussr/AaFiLhbiK54)
+
+[Смешные люди!(1977)](https://max.ru/channel_mf_ussr/AaFiRyqqCK8)
+
+[И это всё о нём(1977)](https://max.ru/channel_mf_ussr/AaFimij0Mfw)
 
 
 
