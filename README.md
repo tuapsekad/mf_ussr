@@ -976,6 +976,14 @@
 
 [Совсем пропащий(1973)](https://max.ru/channel_mf_ussr/AaFc7YaaNN0)
 
+[Под каменным небом(1974)](https://max.ru/channel_mf_ussr/AaFdKSVkRCM)
+
+[Соло для слона с оркестром(1975)](https://max.ru/channel_mf_ussr/AaFdOUWibgY)
+
+[Шаг навстречу(1975)](https://max.ru/channel_mf_ussr/AaFdfQDpIow)
+
+[Легенда о Тиле(1976)](https://max.ru/channel_mf_ussr/AaFiAKSbZIc)
+
 
 
 
