@@ -994,7 +994,9 @@
 
 [Чапаев(1934)](https://max.ru/channel_mf_ussr/AaFjo5GXSQk)
 
+[Дуэнья(1978)](https://max.ru/channel_mf_ussr/AaFnSNYDJlQ)
 
+[Отпуск в сентябре(1979)](https://max.ru/channel_mf_ussr/AaFnXNBgN5c)
 
 
 
