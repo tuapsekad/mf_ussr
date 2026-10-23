@@ -212,6 +212,13 @@
 
 [Кот-рыболов(1964)](https://max.ru/channel_mf_ussr/AaFSdlV_eQA)
 
+[Золушка(1979)](https://max.ru/channel_mf_ussr/AaFn-s_gfTU)
+
+[В стране невыученных уроков(1969)](https://max.ru/channel_mf_ussr/AaFoC0rBWhM)
+
+[Винни Пух(1969)](https://max.ru/channel_mf_ussr/AaFoIKfOWfw)
+
+
 
 
 ### Художественные фильмы
@@ -997,6 +1004,8 @@
 [Дуэнья(1978)](https://max.ru/channel_mf_ussr/AaFnSNYDJlQ)
 
 [Отпуск в сентябре(1979)](https://max.ru/channel_mf_ussr/AaFnXNBgN5c)
+
+[Золушка(1947)](https://max.ru/channel_mf_ussr/AaFn_w3_f2Q)
 
 
 
