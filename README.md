@@ -1017,6 +1017,14 @@
 
 [Кабачок «13 стульев»(1966-1980)](https://max.ru/channel_mf_ussr/AaFto3AASAM)
 
+[Настя(1993)](https://max.ru/channel_mf_ussr/AaF2x7njZaQ)
+
+[Сыскное бюро «Феликс»(1993)](https://max.ru/channel_mf_ussr/AaF21SSaXwE)
+
+[Американский дедушка(1993)](https://max.ru/channel_mf_ussr/AaF25zzibpk)
+
+[Я купил папу(1962)](https://max.ru/channel_mf_ussr/AaF4kBazFw4)
+
 
 
 
