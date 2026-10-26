@@ -1009,6 +1009,14 @@
 
 [Дом, который построил Свифт(1982)](https://max.ru/channel_mf_ussr/AaFsg6mSD2Y)
 
+[Слёзы капали(1982)](https://max.ru/channel_mf_ussr/AaFsmoZkBa8)
+
+[Уникум(1983)](https://max.ru/channel_mf_ussr/AaFsrmKrVto)
+
+[Время и семья Конвей(1984)](https://max.ru/channel_mf_ussr/AaFs1iIoGyM)
+
+[Кабачок «13 стульев»(1966-1980)](https://max.ru/channel_mf_ussr/AaFto3AASAM)
+
 
 
 
