@@ -1041,7 +1041,7 @@
 
 [Камышовый рай(1989)](https://max.ru/channel_mf_ussr/AaGA8zG6Nm8)
 
-
+[Волшебный голос Джельсомино(1977)](https://max.ru/channel_mf_ussr/AaGBRuPICo0)
 
 
 
