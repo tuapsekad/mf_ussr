@@ -228,6 +228,9 @@
 
 [Миловица(1977)](https://max.ru/channel_mf_ussr/AaGBBObiRHU)
 
+[Приключения Мурзилки(1956)](https://max.ru/channel_mf_ussr/AaGBU9IsFMo)
+
+
 
 ### Художественные фильмы
 
