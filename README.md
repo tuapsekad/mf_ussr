@@ -218,12 +218,10 @@
 
 [Винни Пух(1969)](https://max.ru/channel_mf_ussr/AaFoIKfOWfw)
 
-
+[Друзья-товарищи(1951)](https://max.ru/channel_mf_ussr/AZ88bT0iJvs)
 
 
 ### Художественные фильмы
-
-[Друзья-товарищи(1951)](https://max.ru/channel_mf_ussr/AZ88bT0iJvs)
 
 [Приключения Буратино(1975)](https://max.ru/channel_mf_ussr/AZ9GJIyWNvc)
 
