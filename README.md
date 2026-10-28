@@ -1029,7 +1029,11 @@
 
 [Президент и его внучка(1999)](https://max.ru/channel_mf_ussr/AaF7oUONHH4)
 
+[Полицейские и воры(1997)](https://max.ru/channel_mf_ussr/AaGA5PuZSOA)
 
+[Небесный тихоход(1945)](https://max.ru/channel_mf_ussr/AaGA6IFWeXM)
+
+[Камышовый рай(1989)](https://max.ru/channel_mf_ussr/AaGA8zG6Nm8)
 
 
 
