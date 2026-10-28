@@ -220,6 +220,14 @@
 
 [Друзья-товарищи(1951)](https://max.ru/channel_mf_ussr/AZ88bT0iJvs)
 
+[Кот, который гулял сам по себе(1968)](https://max.ru/channel_mf_ussr/AaGBBObiRHU)
+
+[Лесные путешественники(1951)](https://max.ru/channel_mf_ussr/AaGBBObiRHU)
+
+[У страха глаза велики(1946)](https://max.ru/channel_mf_ussr/AaGBBObiRHU)
+
+[Миловица(1977)](https://max.ru/channel_mf_ussr/AaGBBObiRHU)
+
 
 ### Художественные фильмы
 
