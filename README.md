@@ -1050,6 +1050,10 @@
 
 [Ход конём(1952)](https://max.ru/channel_mf_ussr/AaGF290yLTQ)
 
+[Опасный возраст(1981)](https://max.ru/channel_mf_ussr/AaGF9WNrG3g)
+
+[Поднятая целина(1959-1961)](https://max.ru/channel_mf_ussr/AaGGJgsOVSE)
+
 
 
 
