@@ -230,6 +230,8 @@
 
 [Приключения Мурзилки(1956)](https://max.ru/channel_mf_ussr/AaGBU9IsFMo)
 
+[Конёк-Горбунок(1947)](https://max.ru/channel_mf_ussr/AaGF4aodLfw)
+
 
 
 ### Художественные фильмы
@@ -1046,7 +1048,7 @@
 
 [Волшебный голос Джельсомино(1977)](https://max.ru/channel_mf_ussr/AaGBRuPICo0)
 
-
+[Ход конём(1952)](https://max.ru/channel_mf_ussr/AaGF290yLTQ)
 
 
 
