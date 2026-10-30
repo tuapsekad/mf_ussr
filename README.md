@@ -1060,6 +1060,6 @@
 
 [День рождения(1977)](https://max.ru/channel_mf_ussr/AaGLi62WHX0)
 
-[Карлик Нос(1978)]()
+[Карлик Нос(1978)](https://max.ru/channel_mf_ussr/AaGM0PmpDYE)
 
 
