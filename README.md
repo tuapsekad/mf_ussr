@@ -232,6 +232,8 @@
 
 [Конёк-Горбунок(1947)](https://max.ru/channel_mf_ussr/AaGF4aodLfw)
 
+[Карлик Нос(2003)](https://max.ru/channel_mf_ussr/AaGLqonlULI)
+
 
 
 ### Художественные фильмы
@@ -1054,6 +1056,10 @@
 
 [Поднятая целина(1959-1961)](https://max.ru/channel_mf_ussr/AaGGJgsOVSE)
 
+[Каникулы Кроша(1980)](https://max.ru/channel_mf_ussr/AaGGN5R8aRU)
 
+[День рождения(1977)](https://max.ru/channel_mf_ussr/AaGLi62WHX0)
+
+[Карлик Нос(1978)]()
 
 
