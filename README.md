@@ -234,6 +234,14 @@
 
 [Карлик Нос(2003)](https://max.ru/channel_mf_ussr/AaGLqonlULI)
 
+[Золотой цыплёнок(1981)](https://max.ru/channel_mf_ussr/AaGQgO5eavU)
+
+[Трубка и медведь(1955)](https://max.ru/channel_mf_ussr/AaGQgO5eavU)
+
+[Горшочек каши(1984)](https://max.ru/channel_mf_ussr/AaGQgO5eavU)
+
+[Горе – не беда(1983)](https://max.ru/channel_mf_ussr/AaGQgO5eavU)
+
 
 
 ### Художественные фильмы
@@ -1061,5 +1069,9 @@
 [День рождения(1977)](https://max.ru/channel_mf_ussr/AaGLi62WHX0)
 
 [Карлик Нос(1978)](https://max.ru/channel_mf_ussr/AaGM0PmpDYE)
+
+[Сладкая женщина(1976)](https://max.ru/channel_mf_ussr/AaGQXUFIC_k)
+
+[Свадьба с приданым(1953)](https://max.ru/channel_mf_ussr/AaGQdSZaQa0)
 
 
