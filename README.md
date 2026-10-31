@@ -242,6 +242,10 @@
 
 [Горе – не беда(1983)](https://max.ru/channel_mf_ussr/AaGQgO5eavU)
 
+[Остров ошибок(1955)](https://max.ru/channel_mf_ussr/AaGQmgBYZi8)
+
+[Сказка о мёртвой царевне и о семи богатырях(1951)](https://max.ru/channel_mf_ussr/AaGQnKqEHqI)
+
 
 
 ### Художественные фильмы
@@ -1074,4 +1078,4 @@
 
 [Свадьба с приданым(1953)](https://max.ru/channel_mf_ussr/AaGQdSZaQa0)
 
-
+[Перерыв(1978)](https://max.ru/channel_mf_ussr/AaGQl7vDHoI)
