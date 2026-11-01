@@ -1086,5 +1086,11 @@
 
 [Садко(1952)](https://max.ru/channel_mf_ussr/AaGRAB15L48)
 
+[Дядюшкин сон(1966)](https://max.ru/channel_mf_ussr/AaGVqgMhVDA)
 
+[Телеграмма(1971)](https://max.ru/channel_mf_ussr/AaGVvknKbo8)
+
+[Последнее лето детства(1975)](https://max.ru/channel_mf_ussr/AaGV2aqhNIc)
+
+[Майор Вихрь(1967)](https://max.ru/channel_mf_ussr/AaGWAYZTMTE)
 
