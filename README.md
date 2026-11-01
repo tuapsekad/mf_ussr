@@ -1079,3 +1079,12 @@
 [Свадьба с приданым(1953)](https://max.ru/channel_mf_ussr/AaGQdSZaQa0)
 
 [Перерыв(1978)](https://max.ru/channel_mf_ussr/AaGQl7vDHoI)
+
+[Парень из нашего города(1942)](https://max.ru/channel_mf_ussr/AaGQt86kWc4)
+
+[Свинарка и пастух(1941)](https://max.ru/channel_mf_ussr/AaGQ1uqKMZ0)
+
+[Садко(1952)](https://max.ru/channel_mf_ussr/AaGRAB15L48)
+
+
+
