@@ -246,6 +246,9 @@
 
 [Сказка о мёртвой царевне и о семи богатырях(1951)](https://max.ru/channel_mf_ussr/AaGQnKqEHqI)
 
+[Василиса Прекрасная(1977)](https://max.ru/channel_mf_ussr/AaGazgAmJmY)
+
+
 
 
 ### Художественные фильмы
@@ -1095,3 +1098,18 @@
 [Майор Вихрь(1967)](https://max.ru/channel_mf_ussr/AaGWAYZTMTE)
 
 [Ревизор(1952)](https://max.ru/channel_mf_ussr/AaGWQNvaUPE)
+
+[Смелые люди(1950)](https://max.ru/channel_mf_ussr/AaGayoXiLkg)
+
+[Василиса Прекрасная(1939)](https://max.ru/channel_mf_ussr/AaGa14hQZIY)
+
+[Свадьба(1944)](https://max.ru/channel_mf_ussr/AaGa5nrDSUo)
+
+[Дети капитана Гранта(1936)](https://max.ru/channel_mf_ussr/AaGbF4U2SnE)
+
+[Неподдающиеся(1959)](https://max.ru/channel_mf_ussr/AaGbHJpcNe4)
+
+[Чудак из пятого «Б»(1972)](https://max.ru/channel_mf_ussr/AaGbJZn6DTw)
+
+
+
