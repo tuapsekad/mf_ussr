@@ -1111,5 +1111,15 @@
 
 [Чудак из пятого «Б»(1972)](https://max.ru/channel_mf_ussr/AaGbJZn6DTw)
 
+[Живые и мёртвые(1963)](https://max.ru/channel_mf_ussr/AaGgXKkmeYg)
 
+[Отчий дом(1959)](https://max.ru/channel_mf_ussr/AaGgavPEA7c)
+
+[Мираж(1983)](https://max.ru/channel_mf_ussr/AaGgcdSAdY0)
+
+[Зелёные цепочки(1970)](https://max.ru/channel_mf_ussr/AaGk3WmIFCQ)
+
+[Дело № 306(1956)](https://max.ru/channel_mf_ussr/AaGk89D9NJc)
+
+[Тимур и его команда(1976)](https://max.ru/channel_mf_ussr/AaGlAERuKs0)
 
