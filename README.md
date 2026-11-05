@@ -1123,3 +1123,16 @@
 
 [Тимур и его команда(1976)](https://max.ru/channel_mf_ussr/AaGlAERuKs0)
 
+[Не могу сказать «прощай»(1982)](https://max.ru/channel_mf_ussr/AaGl_Gi1FLY)
+
+[Миллион в брачной корзине(1985)](https://max.ru/channel_mf_ussr/AaGp_pP2eU8)
+
+[Тайна «Чёрных дроздов»(1983)](https://max.ru/channel_mf_ussr/AaGqa408Qug)
+
+[Ищите женщину(1982)](https://max.ru/channel_mf_ussr/AaGqcJalf_U)
+
+[Три весёлые смены(1977)](https://max.ru/channel_mf_ussr/AaGqjPMPPnM)
+
+
+
+
