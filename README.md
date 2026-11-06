@@ -1133,6 +1133,16 @@
 
 [Три весёлые смены(1977)](https://max.ru/channel_mf_ussr/AaGqjPMPPnM)
 
+[Прощайте, голуби!(1960)](https://max.ru/channel_mf_ussr/AaGvtFdiLwk)
+
+[Выгодный контракт(1979)](https://max.ru/channel_mf_ussr/AaGvxGQDZMA)
+
+[Москва - Кассиопея(1973)](https://max.ru/channel_mf_ussr/AaGvxHw3E0M)
+
+[Отроки во Вселенной(1974)](https://max.ru/channel_mf_ussr/AaGvyE3KWLk)
+
+[Через тернии к звёздам(1980)](https://max.ru/channel_mf_ussr/AaGvyF5iR9k)
+
 
 
 
