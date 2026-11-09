@@ -1143,6 +1143,8 @@
 
 [Через тернии к звёздам(1980)](https://max.ru/channel_mf_ussr/AaGvyF5iR9k)
 
+[Классик(1998)](https://max.ru/channel_mf_ussr/AaG_QdvZDFQ)
 
+[Воры в законе(1988)](https://max.ru/channel_mf_ussr/AaG_WYPEX0Y)
 
 
