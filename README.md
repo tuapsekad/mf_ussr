@@ -1156,4 +1156,10 @@
 
 [Город мастеров(1965)](https://max.ru/channel_mf_ussr/AaHEat4fYjo)
 
+[Где это видано, где это слыхано(1973)](https://max.ru/channel_mf_ussr/AaHE0nV2UpQ)
+
+[Весёлое сновидение, или Смех и слёзы(1976)](https://max.ru/channel_mf_ussr/AaHE4TEHGjw)
+
+
+
 
