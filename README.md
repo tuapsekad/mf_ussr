@@ -248,6 +248,11 @@
 
 [Василиса Прекрасная(1977)](https://max.ru/channel_mf_ussr/AaGazgAmJmY)
 
+[Крашеный лис(1953)](https://max.ru/channel_mf_ussr/AaHEURo3U88)
+
+[Лев и заяц(1949)](https://max.ru/channel_mf_ussr/AaHEURo3U88)
+
+[Полкан и Шавка(1949)](https://max.ru/channel_mf_ussr/AaHEURo3U88)
 
 
 
@@ -1146,5 +1151,9 @@
 [Классик(1998)](https://max.ru/channel_mf_ussr/AaG_QdvZDFQ)
 
 [Воры в законе(1988)](https://max.ru/channel_mf_ussr/AaG_WYPEX0Y)
+
+[Варавва(1961)](https://max.ru/channel_mf_ussr/AaHEWrceBhs)
+
+[Город мастеров(1965)](https://max.ru/channel_mf_ussr/AaHEat4fYjo)
 
 
