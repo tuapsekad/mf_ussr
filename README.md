@@ -254,6 +254,18 @@
 
 [Полкан и Шавка(1949)](https://max.ru/channel_mf_ussr/AaHEURo3U88)
 
+[Муха-Цокотуха(1960)](https://max.ru/channel_mf_ussr/AaHJg5rLVWI)
+
+[Кукушка и скворец(1949)](https://max.ru/channel_mf_ussr/AaHJg5rLVWI)
+
+[Сестрица Алёнушка и братец Иванушка(1953)](https://max.ru/channel_mf_ussr/AaHJg5rLVWI)
+
+[Павлиний хвост(1946)](https://max.ru/channel_mf_ussr/AaHJg5rLVWI)
+
+[Исполнение желаний(1957)](https://max.ru/channel_mf_ussr/AaHJkE4nRh0)
+
+[Сказки для больших и маленьких(1967)](https://max.ru/channel_mf_ussr/AaHJkE4nRh0)
+
 
 
 ### Художественные фильмы
@@ -1160,6 +1172,6 @@
 
 [Весёлое сновидение, или Смех и слёзы(1976)](https://max.ru/channel_mf_ussr/AaHE4TEHGjw)
 
-
+[Игла(1988)](https://max.ru/channel_mf_ussr/AaHJnGf7fig)
 
 
