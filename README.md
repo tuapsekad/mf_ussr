@@ -266,6 +266,13 @@
 
 [Сказки для больших и маленьких(1967)](https://max.ru/channel_mf_ussr/AaHJkE4nRh0)
 
+[Лесной концерт(1953)](https://max.ru/channel_mf_ussr/AaHOO5cTFFk)
+
+[Фока – на все руки дока(1972)](https://max.ru/channel_mf_ussr/AaHOO5cTFFk)
+
+[На лесной тропе(1975)](https://max.ru/channel_mf_ussr/AaHOO5cTFFk)
+
+[Маленькая колдунья(1991)](https://max.ru/channel_mf_ussr/AaHOO5cTFFk)
 
 
 ### Художественные фильмы
@@ -1174,4 +1181,4 @@
 
 [Игла(1988)](https://max.ru/channel_mf_ussr/AaHJnGf7fig)
 
-
+[Хозяин тайги(1968)](https://max.ru/channel_mf_ussr/AaHOL8fAPVw)
