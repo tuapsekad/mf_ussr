@@ -274,6 +274,17 @@
 
 [Маленькая колдунья(1991)](https://max.ru/channel_mf_ussr/AaHOO5cTFFk)
 
+[Дядюшка Ау(1979)](https://max.ru/channel_mf_ussr/AaHTFHskUdw)
+
+[Храбрый портняжка(1964)](https://max.ru/channel_mf_ussr/AaHTeoDPVuM)
+
+[Мальчик с пальчик(1977)](https://max.ru/channel_mf_ussr/AaHTjYuXBhQ)
+
+[Лиса и дрозд(1946)](https://max.ru/channel_mf_ussr/AaHTjYuXBhQ)
+
+[Храбрый заяц(1955)](https://max.ru/channel_mf_ussr/AaHTjYuXBhQ)
+
+
 
 ### Художественные фильмы
 
@@ -1182,3 +1193,8 @@
 [Игла(1988)](https://max.ru/channel_mf_ussr/AaHJnGf7fig)
 
 [Хозяин тайги(1968)](https://max.ru/channel_mf_ussr/AaHOL8fAPVw)
+
+[Солдат Иван Бровкин(1955)](https://max.ru/channel_mf_ussr/AaHTCy4ucZ0)
+
+[Иван Бровкин на целине(1958)](https://max.ru/channel_mf_ussr/AaHTDDKlJq4)
+
