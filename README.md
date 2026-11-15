@@ -1212,4 +1212,10 @@
 
 [Комедия давно минувших дней(1980)](https://max.ru/channel_mf_ussr/AaHdz65XDrk)
 
+[Невеста с севера(1975)](https://max.ru/channel_mf_ussr/AaHd_v_RUlU)
+
+[Табор уходит в небо(1976)](https://max.ru/channel_mf_ussr/AaHeA022Xl4)
+
+
+
 
