@@ -284,6 +284,14 @@
 
 [Храбрый заяц(1955)](https://max.ru/channel_mf_ussr/AaHTjYuXBhQ)
 
+[Тараканище(1963)](https://max.ru/channel_mf_ussr/AaHd0n0rcPE)
+
+[Дед Мороз и лето(1969)](https://max.ru/channel_mf_ussr/AaHd0n0rcPE)
+
+[Золотое пёрышко(1960)](https://max.ru/channel_mf_ussr/AaHd0n0rcPE)
+
+[Крылатый, мохнатый да масленый(1990)](https://max.ru/channel_mf_ussr/AaHd0n0rcPE)
+
 
 
 ### Художественные фильмы
@@ -1199,5 +1207,9 @@
 [Иван Бровкин на целине(1958)](https://max.ru/channel_mf_ussr/AaHTDDKlJq4)
 
 [В небе 'ночные ведьмы'(1981)](https://max.ru/channel_mf_ussr/AaHZZOrXS6g)
+
+[Мёртвые души(1984)](https://max.ru/channel_mf_ussr/AaHdv4AlUtY)
+
+[Комедия давно минувших дней(1980)](https://max.ru/channel_mf_ussr/AaHdz65XDrk)
 
 
