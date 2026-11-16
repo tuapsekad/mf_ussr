@@ -292,6 +292,9 @@
 
 [Крылатый, мохнатый да масленый(1990)](https://max.ru/channel_mf_ussr/AaHd0n0rcPE)
 
+[Легенда о старом маяке(1976)](https://max.ru/channel_mf_ussr/AaHjmKxkc-w)
+
+[Котёнок по имени Гав(1976)](https://max.ru/channel_mf_ussr/AaHjmKxkc-w)
 
 
 ### Художественные фильмы
