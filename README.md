@@ -1234,6 +1234,11 @@
 
 [Ханума(1978)](https://max.ru/channel_mf_ussr/AaHi2hF6B24)
 
+[Приключения жёлтого чемоданчика(1970)](https://max.ru/channel_mf_ussr/AaHi9Nr1T3k)
+
+[Приходите завтра...(1963)](https://max.ru/channel_mf_ussr/AaHi_GcxLrI)
+
+
 
 
 
