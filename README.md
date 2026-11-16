@@ -1224,6 +1224,18 @@
 
 [Одинокая женщина желает познакомиться(1986)](https://max.ru/channel_mf_ussr/AaHebxtoHDs)
 
+[Последний дюйм(1958)](https://max.ru/channel_mf_ussr/AaHisDRzCiA)
+
+[Родная кровь(1963)](https://max.ru/channel_mf_ussr/AaHisfJrYmc)
+
+[Гамлет(1964)](https://max.ru/channel_mf_ussr/AaHivZ3fVrM)
+
+[Несколько дней из жизни И.И. Обломова(1979)](https://max.ru/channel_mf_ussr/AaHiwQGkVTc)
+
+[Ханума(1978)](https://max.ru/channel_mf_ussr/AaHi2hF6B24)
+
+
+
 
 
 
