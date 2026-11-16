@@ -1216,6 +1216,16 @@
 
 [Табор уходит в небо(1976)](https://max.ru/channel_mf_ussr/AaHeA022Xl4)
 
+[Высота(1957)](https://max.ru/channel_mf_ussr/AaHeWjl0NW0)
+
+[Кубанские казаки(1949)](https://max.ru/channel_mf_ussr/AaHebAB9cMs)
+
+[Мы с вами где-то встречались(1954)](https://max.ru/channel_mf_ussr/AaHebZ0_D8o)
+
+[Одинокая женщина желает познакомиться(1986)](https://max.ru/channel_mf_ussr/AaHebxtoHDs)
+
+
+
 
 
 
