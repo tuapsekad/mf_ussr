@@ -1241,6 +1241,12 @@
 
 [Приходите завтра...(1963)](https://max.ru/channel_mf_ussr/AaHi_GcxLrI)
 
+[Малыш и Карлсон, который живёт на крыше(1971)](https://max.ru/channel_mf_ussr/AaHoD4lDTYQ)
+
+[Эзоп(1981)](https://max.ru/channel_mf_ussr/AaHoGeq9Jxc)
+
+[Женщина, которая поёт(1978)](https://max.ru/channel_mf_ussr/AaHoO_XrMAM)
+
 
 
 
