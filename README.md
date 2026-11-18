@@ -1247,6 +1247,15 @@
 
 [Женщина, которая поёт(1978)](https://max.ru/channel_mf_ussr/AaHoO_XrMAM)
 
+[Вкус хлеба(1979)](https://max.ru/channel_mf_ussr/AaHosxUoFmY)
+
+[День полнолуния(1998)](https://max.ru/channel_mf_ussr/AaHs3qoxU8I)
+
+[Цареубийца(1991)](https://max.ru/channel_mf_ussr/AaHs6z__WLY)
+
+[Солярис(1972)](https://max.ru/channel_mf_ussr/AaHtCGfyDec)
+
+
 
 
 
