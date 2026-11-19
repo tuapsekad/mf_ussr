@@ -296,6 +296,8 @@
 
 [Котёнок по имени Гав(1976)](https://max.ru/channel_mf_ussr/AaHjmKxkc-w)
 
+[Полёт на Луну(1953)](https://max.ru/channel_mf_ussr/AaHuBy2beXQ)
+
 
 ### Художественные фильмы
 
@@ -1255,7 +1257,9 @@
 
 [Солярис(1972)](https://max.ru/channel_mf_ussr/AaHtCGfyDec)
 
+[Добряки(1979)](https://max.ru/channel_mf_ussr/AaHx_IVmOEA)
 
+[Прежде, чем расстаться(1984)](https://max.ru/channel_mf_ussr/AaHyc6euc0I)
 
 
 
