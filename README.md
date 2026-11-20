@@ -298,6 +298,9 @@
 
 [Полёт на Луну(1953)](https://max.ru/channel_mf_ussr/AaHuBy2beXQ)
 
+[Ушастик и его друзья(1979-1982)](https://max.ru/channel_mf_ussr/AaH3i0w2Gqs)
+
+
 
 ### Художественные фильмы
 
@@ -1261,7 +1264,13 @@
 
 [Прежде, чем расстаться(1984)](https://max.ru/channel_mf_ussr/AaHyc6euc0I)
 
+[Дама с собачкой(1960)](https://max.ru/channel_mf_ussr/AaHytihUAMc)
 
+[Я, Франциск Скорина...(1969)](https://max.ru/channel_mf_ussr/AaH3gXK8d2A)
+
+[Быть братом(1976)](https://max.ru/channel_mf_ussr/AaH3iSwkUsg)
+
+[Ушастик и его друзья(1979-1982)](https://max.ru/channel_mf_ussr/AaH3i0w2Gqs)
 
 
 
