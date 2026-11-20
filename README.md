@@ -300,6 +300,12 @@
 
 [Ушастик и его друзья(1979-1982)](https://max.ru/channel_mf_ussr/AaH3i0w2Gqs)
 
+[В синем море, в белой пене…(1984)](https://max.ru/channel_mf_ussr/AaH3mIvKCvg)
+
+[Приключения Самоделкина(1957)](https://max.ru/channel_mf_ussr/AaH3mIvKCvg)
+
+[Свадьба соек(1957)](https://max.ru/channel_mf_ussr/AaH3mIvKCvg)
+
 
 
 ### Художественные фильмы
