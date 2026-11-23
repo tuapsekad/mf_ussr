@@ -306,6 +306,14 @@
 
 [Свадьба соек(1957)](https://max.ru/channel_mf_ussr/AaH3mIvKCvg)
 
+[Раз ковбой, два ковбой(1981)](https://max.ru/channel_mf_ussr/AaIGuXs9ckc)
+
+[Седой медведь(1988)](https://max.ru/channel_mf_ussr/AaIGuXs9ckc)
+
+[Тайна жёлтого куста(1982)](https://max.ru/channel_mf_ussr/AaIGuXs9ckc)
+
+[Крепыш(1950)](https://max.ru/channel_mf_ussr/AaIGuXs9ckc)
+
 
 
 ### Художественные фильмы
@@ -1277,6 +1285,8 @@
 [Быть братом(1976)](https://max.ru/channel_mf_ussr/AaH3iSwkUsg)
 
 [Жених с того света(1958)](https://max.ru/channel_mf_ussr/AaH3p633bgQ)
+
+[За витриной универмага(1955)](https://max.ru/channel_mf_ussr/AaIGqKhRMUE)
 
 
 
