@@ -1276,7 +1276,7 @@
 
 [Быть братом(1976)](https://max.ru/channel_mf_ussr/AaH3iSwkUsg)
 
-[Ушастик и его друзья(1979-1982)](https://max.ru/channel_mf_ussr/AaH3i0w2Gqs)
+[Жених с того света(1958)](https://max.ru/channel_mf_ussr/AaH3p633bgQ)
 
 
 
