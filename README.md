@@ -1290,6 +1290,13 @@
 
 [За витриной универмага(1955)](https://max.ru/channel_mf_ussr/AaIGqKhRMUE)
 
+[Гость с Кубани(1955)](https://max.ru/channel_mf_ussr/AaIMU_Q2IHw)
+
+[Капитан «Старой черепахи»(1956)](https://max.ru/channel_mf_ussr/AaIMYcwSNyE)
+
+[Дом, в котором я живу(1957)](https://max.ru/channel_mf_ussr/AaIMYdybRQw)
+
+
 
 
 
