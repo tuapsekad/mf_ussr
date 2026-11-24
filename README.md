@@ -314,6 +314,8 @@
 
 [Крепыш(1950)](https://max.ru/channel_mf_ussr/AaIGuXs9ckc)
 
+[Приключения поросёнка Фунтика(1986)](https://max.ru/channel_mf_ussr/AaIHHoLkRiE)
+
 
 
 ### Художественные фильмы
