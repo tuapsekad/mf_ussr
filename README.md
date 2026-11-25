@@ -1296,6 +1296,17 @@
 
 [Дом, в котором я живу(1957)](https://max.ru/channel_mf_ussr/AaIMYdybRQw)
 
+[Республика ШКИД(1966)](https://max.ru/channel_mf_ussr/AaIM1xFhPek)
+
+[Три орешка для Золушки(1973)](https://max.ru/channel_mf_ussr/AaIRUPsgJHI)
+
+[Илья Муромец(1956)](https://max.ru/channel_mf_ussr/AaIRUvDENGM)
+
+[Каменный цветок(1946)](https://max.ru/channel_mf_ussr/AaIRVDTzOHI)
+
+
+
+
 
 
 
