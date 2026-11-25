@@ -1304,7 +1304,11 @@
 
 [Каменный цветок(1946)](https://max.ru/channel_mf_ussr/AaIRVDTzOHI)
 
+[Вий(1967)](https://max.ru/channel_mf_ussr/AaIRnsXwWsM)
 
+[Сампо(1958)](https://max.ru/channel_mf_ussr/AaIRntenNNE)
+
+[Друг мой, Колька!..(1961)](https://max.ru/channel_mf_ussr/AaIRn6fIfWE)
 
 
 
