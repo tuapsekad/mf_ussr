@@ -1318,6 +1318,17 @@
 
 [Жили три холостяка(1973)](https://max.ru/channel_mf_ussr/AaIWkTlCbhw)
 
+[Дон Сезар де Базан(1989)](https://max.ru/channel_mf_ussr/AaIbSCW4IH4)
+
+[Безымянная звезда(1979)](https://max.ru/channel_mf_ussr/AaIbaO2iVIU)
+
+[Сибириада(1978)](https://max.ru/channel_mf_ussr/AaIbeneGCF4)
+
+[Человек родился(1956)](https://max.ru/channel_mf_ussr/AaIblE2eNcc)
+
+[Однажды двадцать лет спустя(1980)](https://max.ru/channel_mf_ussr/AaIblcuqW68)
+
+
 
 
 
